@@ -1,0 +1,12 @@
+version: 1
+site:
+  title: LifeChapters
+  structure:
+    - type: space
+      key: lifechapters-english
+      title: English
+      path: en
+      default: true
+      content:
+        directory: ./en
+        language: en
