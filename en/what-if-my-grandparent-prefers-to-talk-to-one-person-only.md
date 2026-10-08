@@ -2,7 +2,7 @@
 description: "It is a sign of deep trust, not rejection. Learn how to respect this boundary, handle the guilt of being chosen, and capture the story in a safe, one-on-one setting."
 ---
 
-# What if my grandparent prefers to talk to one person only?
+# What If My Grandparent Prefers To Talk To One Person Only?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/4a5df017605393dcea6a.delivery-v1.webp>)
 

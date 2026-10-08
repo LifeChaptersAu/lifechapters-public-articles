@@ -4,7 +4,7 @@
 
 <!-- lifechapters:articles:start -->
 * [What to do when your parent cries during recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
-* [What if my grandparent prefers to talk to one person only?](what-if-my-grandparent-prefers-to-talk-to-one-person-only.md)
+* [What If My Grandparent Prefers To Talk To One Person Only?](what-if-my-grandparent-prefers-to-talk-to-one-person-only.md)
 * [What to say when dad says he doesn't need anything?](what-to-say-when-dad-says-he-doesnt-need-anything.md)
 * [What to say when mum repeats herself during recording?](what-to-say-when-mum-repeats-herself-during-recording.md)
 * [How do I turn scattered family stories into a coherent narrative?](how-can-i-turn-my-parents-scattered-stories-into-a-coherent-narrative.md)
