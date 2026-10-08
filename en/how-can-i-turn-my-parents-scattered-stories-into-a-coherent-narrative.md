@@ -4,8 +4,6 @@ description: "A practical guide to sorting oral memories into a clear flow, with
 
 # How do I turn scattered family stories into a coherent narrative?
 
-A practical guide to sorting oral memories into a clear flow, with specific questions and structural tips for Australian families.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/53aec536e8f5aefd21f4.delivery-v1.webp>)
 
 Start by sorting your materials into three buckets: Who, When, and What. Identify the core characters, map their timelines against major historical events, and group anecdotes by theme. Then, choose a single narrative thread, such as a recurring value or a pivotal moment, to weave these buckets into a flow that reads like a story rather than a data dump.
@@ -66,23 +64,23 @@ If the task of organizing these stories feels too heavy, or if you want to ensur
 
 ## Frequently Asked Questions
 
-### ### How do I start sorting a large pile of unlabelled photos?
+### How do I start sorting a large pile of unlabelled photos?
 
 Begin by sorting the photos into three broad piles: people, places, and events. You do not need to identify everyone immediately; just group them by what you can see. This reduces the visual clutter and makes the next step of adding names and dates much less daunting.
 
-### ### What if I cannot remember the dates for some of the stories?
+### What if I cannot remember the dates for some of the stories?
 
 Do not stress about missing dates. You can often estimate the year by asking about the person's age or major life events like a wedding or a job change. If the exact date remains unclear, it is better to leave it out than to guess incorrectly, as the emotional truth of the story matters more than the calendar.
 
-### ### Should I include every single story my parent tells me?
+### Should I include every single story my parent tells me?
 
 No, you do not need to include every anecdote. Focus on the stories that reveal character, values, or pivotal moments. If a story feels repetitive or does not add new insight into who the person was, it is okay to leave it out. A tighter narrative is often more powerful and respectful of the reader's time.
 
-### ### How do I handle it if my siblings disagree on the facts?
+### How do I handle it if my siblings disagree on the facts?
 
 Focus on the emotional truth rather than trying to adjudicate who is right. You can present the story as it was remembered by the person telling it, or include multiple perspectives if they differ significantly. The goal is to capture the family's shared memory and the feelings behind it, not to create a legal record.
 
-### ### Is it too late to start if my parent is elderly?
+### Is it too late to start if my parent is elderly?
 
 It is never too late to start capturing what is available. Even a partial story is better than none, and the process itself can be meaningful for both the parent and the family. The goal is to preserve what is there, not to create a complete historical record, so start with the stories that are most vivid or important to you.
 

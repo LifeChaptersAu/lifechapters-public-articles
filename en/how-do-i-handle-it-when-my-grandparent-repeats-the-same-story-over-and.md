@@ -4,8 +4,6 @@ description: "A gentle three-step technique to turn repetitive storytelling into
 
 # How do I handle it when my grandparent repeats the same story over and over?
 
-A gentle three-step technique to turn repetitive storytelling into connection, validating your frustration and helping you preserve the meaning behind the loop.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/a3cabed765f8beb922b7.delivery-v1.webp>)
 
 Shift from passive listening to active curiosity. Instead of correcting the loop, use a three-step technique: acknowledge the emotion behind the story, ask a specific detail you’ve never heard, and gently pivot to a related but new topic. This transforms the repetition into a connection, reducing your frustration and giving the story a fresh purpose.
@@ -70,23 +68,23 @@ If you are looking for a tangible way to honour these memories, you might consid
 
 ## Frequently Asked Questions
 
-### ### Is repeating stories a sign of early dementia?
+### Is repeating stories a sign of early dementia?
 
 It can be, but it is also common in normal ageing, loneliness, or anxiety. Only a GP can diagnose dementia; repetition alone is not a definitive sign.
 
-### ### How do I stop feeling guilty when I get annoyed?
+### How do I stop feeling guilty when I get annoyed?
 
 Acknowledge the frustration without judgment; you are allowed to feel tired. Use the redirection technique to shift the dynamic from passive endurance to active engagement.
 
-### ### What if my grandparent gets upset when I ask new questions?
+### What if my grandparent gets upset when I ask new questions?
 
 Stop the redirection immediately; return to listening and validating their current emotion. Their comfort is more important than completing the conversation.
 
-### ### Can I record these repeated stories?
+### Can I record these repeated stories?
 
 Yes, with permission, because repetition often contains rich sensory details that are easy to miss in a single telling. Focus on capturing the emotion and specific sensory details they emphasize to preserve the story's depth.
 
-### ### Is there a difference between repeating questions and repeating stories?
+### Is there a difference between repeating questions and repeating stories?
 
 Yes, because they often stem from different needs. Repeating questions frequently indicates short-term memory loss or anxiety, while repeating stories usually signals a desire for connection, validation, or unresolved emotion.
 

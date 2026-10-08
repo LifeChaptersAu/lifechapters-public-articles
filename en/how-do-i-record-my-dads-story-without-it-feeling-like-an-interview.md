@@ -4,8 +4,6 @@ description: "Stop the awkward Q&A. Learn ambient listening techniques to captur
 
 # How do I record my dad's story without it feeling like an interview?
 
-Stop the awkward Q&amp;A. Learn ambient listening techniques to capture natural, unscripted memories through shared activities like driving or fixing a lawnmower.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/dd4b744cb18ab635fc26.delivery-v1.webp>)
 
 Stop treating it like an interview. Instead, use "ambient listening": record while you are both doing something else, like driving, fixing a lawnmower, or fishing. When his hands are busy and you are not staring at him, the pressure vanishes. He will share stories naturally, and you can capture his voice and memories without the awkwardness of a formal Q&amp;A.
@@ -72,27 +70,27 @@ For clinical or consent-capacity questions, speak with a doctor or qualified hea
 
 ## Frequently Asked Questions
 
-### ### Do I need a professional microphone to record my dad’s voice?
+### Do I need a professional microphone to record my dad’s voice?
 
 No. A smartphone’s built-in voice memo app is more than enough. The goal is clarity, not studio-quality production. The technology should be invisible so you can focus on the moment and the connection between you.
 
-### ### What if my dad says he doesn’t have anything interesting to say?
+### What if my dad says he doesn’t have anything interesting to say?
 
 This is usually a sign of vulnerability, not disinterest. Reframe the mission: it’s not about him being impressive, it’s about creating a legacy for his grandchildren. Use specific story-starters rather than broad questions to help him find the moments he actually remembers.
 
-### ### Is it okay to record a conversation without telling him first?
+### Is it okay to record a conversation without telling him first?
 
 No; always get consent. Explain that it’s for the family, for his grandchildren, and that he can stop at any time. Transparency builds trust and makes him feel respected rather than surveilled.
 
-### ### How long should each recording session be?
+### How long should each recording session be?
 
 Keep it short; 15–30 minutes is ideal; you can always do another session later. Shorter sessions feel less like an interview and more like a chat, which keeps the energy high and the stories flowing.
 
-### ### What if the recording quality is bad?
+### What if the recording quality is bad?
 
 It’s better to have a bad recording than no recording. If the audio is clear enough to understand, it’s valuable. The content is what matters, and the technical details can be handled later if needed.
 
-### ### Can I use this technique for my mother too?
+### Can I use this technique for my mother too?
 
 Yes. The "ambient listening" and "shared activity" techniques work for any parent. The key is to remove the pressure of a formal interview and let the conversation flow naturally, regardless of who is speaking.
 

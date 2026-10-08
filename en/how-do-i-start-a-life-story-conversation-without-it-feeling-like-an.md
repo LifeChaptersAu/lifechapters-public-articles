@@ -4,8 +4,6 @@ description: "Stop the formal setup. Use ambient listening and shared activities
 
 # How do I start a life story conversation without it feeling like an interview?
 
-Stop the formal setup. Use ambient listening and shared activities to let stories flow naturally, bypassing the defensive performance mode that shuts parents down.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/bb2b16b28499a07b182c.delivery-v1.webp>)
 
 Stop trying to conduct an interview. Instead, use the "ambient listening" method: sit beside your parent during a shared activity like sorting photos or cooking, and let them narrate their actions. This bypasses the defensive "performance" mode triggered by direct questions, allowing stories to flow naturally as they describe what they are doing, rather than what they think you want to hear.
@@ -76,23 +74,23 @@ For clinical or consent-capacity questions, speak with a doctor or qualified hea
 
 ## Frequently Asked Questions
 
-### ### Do I need to ask permission to record my parent's voice?
+### Do I need to ask permission to record my parent's voice?
 
 Yes, always ask for explicit consent before recording. This respects their autonomy and reduces the feeling of being "captured" by a device. Asking permission also signals that you value their comfort and control over the conversation.
 
-### ### What if my parent has early-stage dementia and can't tell long stories?
+### What if my parent has early-stage dementia and can't tell long stories?
 
 Focus on simple, sensory prompts like "What does this smell like?" or "Do you like this song?" rather than narrative questions. Prioritize their comfort over completeness, and accept that shorter, simpler exchanges are perfectly valid.
 
-### ### Is it better to record on video or audio?
+### Is it better to record on video or audio?
 
 Audio is often less intimidating because the parent doesn't have to perform for a camera. However, video can capture facial expressions and gestures that add depth to the story later. Choose the format that feels most natural for your parent.
 
-### ### How do I handle it if my parent gets emotional?
+### How do I handle it if my parent gets emotional?
 
 Pause the recording, offer a tissue, and let them lead the pace. Do not rush to fix the emotion or force them to continue. Sometimes, a moment of silence is the most respectful response.
 
-### ### Can I use these techniques for a grandparent who lives far away?
+### Can I use these techniques for a grandparent who lives far away?
 
 Yes, use video calls with a shared photo album on screen, or mail a physical photo and ask them to call you to talk about it. The key is to create a shared visual or sensory anchor for the conversation.
 

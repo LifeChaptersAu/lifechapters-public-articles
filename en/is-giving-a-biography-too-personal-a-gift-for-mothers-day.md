@@ -4,8 +4,6 @@ description: "It feels like overstepping, but it is an invitation to be seen. He
 
 # Is giving a biography too personal a gift for Mother's Day?
 
-It feels like overstepping, but it is an invitation to be seen. Here is how to frame it as a collaborative project where she controls the narrative, not an intrusion.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/14eb51404db3e29eb379.delivery-v1.webp>)
 
 No, it is not too personal; it is an invitation to be seen. The hesitation usually stems from a fear of intrusion, but a biography gift is only "too personal" if it is imposed. When framed as a collaborative project where the parent controls the narrative, it becomes a powerful act of respect rather than a violation of privacy.
@@ -82,19 +80,19 @@ The goal is not to produce a polished book. The goal is to create a space where 
 
 ## Frequently Asked Questions
 
-### ### Is it rude to ask my mother to write down her memories?
+### Is it rude to ask my mother to write down her memories?
 
 No, provided you frame it as a gift for the family, not a task for her. The key is to make it clear that she is in control of what she shares and how she shares it. If it feels like a chore, it will feel rude. If it feels like an invitation to be heard, it is a sign of respect.
 
-### ### What if my mum is too private to share her past?
+### What if my mum is too private to share her past?
 
 Start with the present or a specific, safe memory. Let her set the pace. Do not push her to share things she is not comfortable with. Privacy is a boundary, and respecting that boundary is part of the gift. If she is not ready, wait; the door is always open.
 
-### ### Can I do this if my mum lives in a different state?
+### Can I do this if my mum lives in a different state?
 
 Yes, remote recording options exist, but check current availability. A video call can work just as well as an in-person conversation, provided you are both comfortable with the technology. The key is to create a relaxed, conversational atmosphere, regardless of the medium.
 
-### ### How long does it take to record a mother's life story?
+### How long does it take to record a mother's life story?
 
 There is no fixed timeline, as it depends entirely on her comfort and energy levels. Some families complete a full story in a few sessions, while others take months or even years. The most important factor is that she feels in control of the pace, so there is no pressure to rush the process.
 

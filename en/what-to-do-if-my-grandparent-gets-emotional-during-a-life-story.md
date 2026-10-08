@@ -4,8 +4,6 @@ description: "Stop the recording, acknowledge the feeling, and let the silence s
 
 # What to do if my grandparent gets emotional during a life story interview?
 
-Stop the recording, acknowledge the feeling, and let the silence sit. Here is a simple pause-validate-resume method to handle tears without breaking the connection.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/4d0faec63e4486aff00e.delivery-v1.webp>)
 
 Stop the recording immediately and do not ask them to keep going. Acknowledge the feeling by saying, "I can see this is a heavy memory," and let the silence sit for at least ten seconds. When they are ready, ask, "Would you like to talk about what that felt like, or shall we move to a lighter memory?" This validates their experience without forcing them to perform.
@@ -80,27 +78,27 @@ Ask permission before recording, let the person choose the pace, and pause if th
 
 ## Frequently Asked Questions
 
-### ### What if my grandparent gets angry instead of sad?
+### What if my grandparent gets angry instead of sad?
 
 Anger is often a mask for grief or fear. Use the same pause-validate-resume method; acknowledge the intensity by saying, "I can hear how strong this memory is." Do not argue or correct them. Let the emotion be heard without trying to fix it or explain it away.
 
-### ### Should I turn off the recording if they cry?
+### Should I turn off the recording if they cry?
 
 Only if they ask you to. If they are crying but still talking, the recording captures the emotion, which is valuable. If they ask you to stop, stop immediately; their comfort is more important than the data; you can always start again another day.
 
-### ### How long should I wait before resuming?
+### How long should I wait before resuming?
 
 There is no fixed time. Wait until they make eye contact or take a deep breath. It could be a few seconds or several minutes. Follow their lead, not your anxiety. The right time is when they are ready to speak again.
 
-### ### What if they say "I don't want to talk about this"?
+### What if they say "I don't want to talk about this"?
 
 Respect it immediately; say, "Okay, let's move on." Do not push; you can revisit the topic later, or never; their boundary is the rule. If you push, you risk damaging the trust you have built.
 
-### ### Is it normal to feel guilty for recording?
+### Is it normal to feel guilty for recording?
 
 Yes. Many adult children feel they are "using" their grandparent. Remind yourself that you are preserving their voice for their family. The guilt is a sign you care, not that you are doing something wrong. It is a natural part of the process.
 
-### ### Can I edit out the crying parts?
+### Can I edit out the crying parts?
 
 You can, but consider keeping them. The raw emotion is often the most valuable part for the family, as it conveys the depth of the memory in a way that words alone cannot. Removing it may make the story feel less authentic to the next generation.
 

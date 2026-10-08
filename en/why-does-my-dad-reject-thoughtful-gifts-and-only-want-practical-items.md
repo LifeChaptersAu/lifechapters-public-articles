@@ -4,8 +4,6 @@ description: "Your dad saying he needs nothing is not a rejection of you — her
 
 # Why does my dad reject thoughtful gifts and only want practical items?
 
-Your dad saying he needs nothing is not a rejection of you — here is what his practicality protects, and how to give him something he will accept.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/ae08dbe6a3cc87e161f6.delivery-v1.webp>)
 
 He was raised in a world where usefulness was the language, so a practical gift is one he can accept without anything being said about the two of you, while a sentimental one asks for a response nobody ever taught him how to give. The move is to stop offering objects and start offering recognition — something that treats him as the expert.
@@ -79,23 +77,23 @@ If you want a starting point, [these questions about his childhood and early yea
 
 ## Frequently Asked Questions
 
-### ### Why does my dad seem uncomfortable when I give him a sentimental card?
+### Why does my dad seem uncomfortable when I give him a sentimental card?
 
 A card with feelings written in it can read to him as a request for a feeling back, and he has to produce it on the spot with people watching, so the discomfort is about the demand rather than the card. If you want to write one, hand it over quietly and let him read it on his own.
 
-### ### Is it normal for my father to be this emotionally detached?
+### Is it normal for my father to be this emotionally detached?
 
 It is common enough for his generation to be unremarkable. Many Australian men were raised to treat stoicism as a practical skill, something that got a family through hard years, and they were rarely given any language for the other side. Detachment in that context is usually a habit of protection rather than a measure of how much he cares about you.
 
-### ### What is a good present for a dad who says he wants nothing?
+### What is a good present for a dad who says he wants nothing?
 
 Something that acknowledges what he did, or something genuinely good of a kind he already uses. A preserved story, a properly made tool, or the repair of something he values all respect his skills rather than asking him to be sentimental. The test is whether the gift has a use, because a use gives him a way to accept it.
 
-### ### How do I stop feeling rejected by my dad's gift preferences?
+### How do I stop feeling rejected by my dad's gift preferences?
 
 Read the preference as his language rather than a verdict on yours. A man who wants things that function is telling you that reliability and usefulness are how he understands care, and that is what he has been offering you for decades. Once you translate it that way, the shrug stops being personal and becomes information.
 
-### ### Can I record my dad's voice if he doesn't want to be recorded?
+### Can I record my dad's voice if he doesn't want to be recorded?
 
 Not without his agreement, and pushing tends to end the conversation for good. Start with low-stakes talk about his work, his first car or his hobbies, with no phone on the table, so it feels like a chat rather than a project. Later you can ask whether he'd mind you recording one particular story so the grandchildren can hear it, and take no as an answer.
 

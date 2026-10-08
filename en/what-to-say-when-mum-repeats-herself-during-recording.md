@@ -4,8 +4,6 @@ description: "Gentle scripts and technical reframing to handle repetition withou
 
 # What to say when mum repeats herself during recording?
 
-Gentle scripts and technical reframing to handle repetition without correcting her, preserving the emotional weight of the moment.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/8d513dd15eaabbdcfa7b.delivery-v1.webp>)
 
 You do not need to correct them. Instead, gently validate the emotion behind the repetition with a phrase like, "I can see how much that meant to you," or simply pause and let the silence hold the moment. This acknowledges their feeling without challenging their memory, keeping the emotional flow intact for the recording.
@@ -86,23 +84,23 @@ Ask permission before recording, let the person choose the pace, and pause if th
 
 ## Frequently Asked Questions
 
-### ### Is it okay to edit out the repeated parts later?
+### Is it okay to edit out the repeated parts later?
 
 Yes, but keep the most emotionally charged repetition. In the final product, the repetition can be a powerful narrative device, so don't cut everything. The tone and pace of the repetition often convey more emotion than the words themselves, so preserving that emotional anchor is valuable.
 
-### ### What if she gets upset that I’m recording her?
+### What if she gets upset that I’m recording her?
 
 Stop immediately; respect her boundaries. You can try again later, or simply listen without recording. Her comfort is more important than the recording. If she is distressed, the conversation is over for that moment, and you can revisit it when she is ready.
 
-### ### How long should I let the repetition continue?
+### How long should I let the repetition continue?
 
 There is no fixed time, but watch for her energy. If she remains engaged and her voice stays warm, let it continue. If she becomes flat or agitated, gently redirect or pause. The goal is to capture the feeling, not to endure a long session.
 
-### ### Can I use a prompt to help her move on?
+### Can I use a prompt to help her move on?
 
 Yes, but keep it gentle. Instead of "Let's move on," try "And what happened next?" or "How did that make you feel?" This keeps the flow forward without rejecting the previous part. It acknowledges the current story while opening a door to the next one, maintaining the emotional connection.
 
-### ### Is this a sign that her dementia is getting worse?
+### Is this a sign that her dementia is getting worse?
 
 Not necessarily. Repetition can be a coping mechanism or a way of processing memory. It is not a direct indicator of progression. Consult her doctor for medical advice, but don't let it stop you from recording. The repetition is often a sign of emotional significance, not cognitive decline.
 

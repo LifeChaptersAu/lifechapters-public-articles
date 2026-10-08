@@ -4,8 +4,6 @@ description: "A gentle guide to handling tears without pausing the story, valida
 
 # What to do when your parent cries during recording?
 
-A gentle guide to handling tears without pausing the story, validating their emotions, and keeping the moment real.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/dd4b744cb18ab635fc26.delivery-v1.webp>)
 
 Stop the recording briefly if it feels overwhelming, but do not stop if the emotion is the story. Acknowledge the feeling without fixing it, offer a glass of water, and let the silence sit. The tears are not a technical error; they are the most authentic part of the legacy. You are not a data extractor; you are a witness.
@@ -82,23 +80,23 @@ LifeChapters for example is an Australian service that turns a life story into a
 
 ## Frequently Asked Questions
 
-### ### Should I stop the recording if my parent is crying?
+### Should I stop the recording if my parent is crying?
 
 Only if it feels overwhelming for you or them. If the emotion is part of the story, keep it rolling. The silence and the tears are part of the legacy.
 
-### ### What if my parent asks me to delete the crying part?
+### What if my parent asks me to delete the crying part?
 
 Respect their request, but you can always ask them to listen to it later and see if they feel differently. The choice is ultimately theirs.
 
-### ### How long should I wait before asking another question?
+### How long should I wait before asking another question?
 
 Wait until they have taken a breath and looked at you. There is no set time; let the silence sit.
 
-### ### Is it okay to cry with my parent?
+### Is it okay to cry with my parent?
 
 Yes, it is okay to cry with your parent. Shared emotion can be bonding. Just be mindful of your own capacity to continue the session.
 
-### ### What if my parent becomes angry instead of crying?
+### What if my parent becomes angry instead of crying?
 
 Treat it the same way. Validate the emotion ("That sounds frustrating"), pause if needed, and do not argue or defend.
 

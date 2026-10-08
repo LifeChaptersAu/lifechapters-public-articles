@@ -4,8 +4,6 @@ description: "Most dads say they want nothing, but they really want to feel know
 
 # Why do people often ruin Father's Day with generic gifts?
 
-Most dads say they want nothing, but they really want to feel known. This explains why generic gifts land flat and offers one simple conversation to change that.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/12b7b92bb881635a98b2.delivery-v1.webp>)
 
 Because a gift is read as evidence of attention, not utility. A mug or socks prove you remembered the date; they prove nothing about knowing him. Dads rarely say so, which hides the miss. Gifts that land carry something only you could have given — his own story, his time, his memory — so effort is visible in the gift itself.
@@ -72,27 +70,27 @@ The next step is simple. Ask him what his father was like when he was the age yo
 
 ## Frequently Asked Questions
 
-### ### What should I get my dad for Father's Day if he says he doesn't want anything?
+### What should I get my dad for Father's Day if he says he doesn't want anything?
 
 Take it as information rather than a refusal: he is declining objects, not attention. The ranking pages' own interviews point at time, a shared meal, an experience, or something only you could give — his story, a memory, a recording of him talking. A small handmade or self-made thing outperforms an expensive generic one.
 
-### ### Why does my dad seem unimpressed by the gifts I buy him?
+### Why does my dad seem unimpressed by the gifts I buy him?
 
 Most likely he likes you and not the object, and is too polite to separate the two. He is reading the gift as a signal of how well you know him; a gift that could have been for anyone reads as a date remembered rather than a person known. It is rarely about the cost.
 
-### ### Is it rude to ask your dad what he wants for Father's Day?
+### Is it rude to ask your dad what he wants for Father's Day?
 
 No, but expect it to fail; men of this generation commonly deflect. Better questions are sideways: what he'd do with a free Sunday, what he wishes he had more time for, what he's been meaning to sort out. Those answers are gift briefs.
 
-### ### Are experience gifts better than physical gifts for dads?
+### Are experience gifts better than physical gifts for dads?
 
 Often, but not automatically — an experience he didn't want is still a generic gift with a booking fee. What makes both kinds work is specificity to him. The strongest option is usually an experience that also leaves something behind: photos, a recording, something written down.
 
-### ### How do I make up for years of bad Father's Day gifts?
+### How do I make up for years of bad Father's Day gifts?
 
 Don't announce it or apologise; that makes him manage your feelings on his day. Do one specific thing instead: ask about a part of his life you've never asked about and actually listen. Recognition now counts; there is no ledger to settle.
 
-### ### What's a good Father's Day gift for a dad in his 70s or 80s?
+### What's a good Father's Day gift for a dad in his 70s or 80s?
 
 At that stage most objects are a storage problem. Gifts of attention and record do better: the family photos labelled at last, his stories captured while he is well enough to enjoy telling them, a visit with no agenda.
 

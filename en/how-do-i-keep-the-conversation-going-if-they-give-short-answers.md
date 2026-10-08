@@ -4,8 +4,6 @@ description: "Stop accepting one-word replies. Learn to use sensory bridges and 
 
 # How Do I Keep the Conversation Going If They Give Short Answers?
 
-Stop accepting one-word replies. Learn to use sensory bridges and open loops to turn quiet moments into rich family stories.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/33cc3e631189264a5d91.delivery-v1.webp>)
 
 Stop asking questions that can be answered with a single word. Instead, use "open loops" by sharing a specific memory of your own to invite comparison, or ask for sensory details like what it smelled like or what they were wearing. This shifts the task from recalling facts to reliving moments, which is where the detailed storytelling lives.
@@ -80,23 +78,23 @@ For clinical or consent-capacity questions, speak with a doctor or qualified hea
 
 ## Frequently Asked Questions
 
-### ### How do I ask my parent about their life without making them feel interrogated?
+### How do I ask my parent about their life without making them feel interrogated?
 
 Focus on specific, sensory details rather than broad summaries. Asking "What did the kitchen smell like?" invites a memory, while "How was your life?" demands a verdict. This shift lowers the cognitive load and makes it easier for them to share naturally.
 
-### ### What should I do if my parent gives one-word answers?
+### What should I do if my parent gives one-word answers?
 
 Use "open loops" by sharing a small, specific memory of your own to invite comparison, or ask for sensory details like what they were wearing. This shifts the task from recalling facts to reliving moments, which is where the detailed storytelling lives.
 
-### ### Is it okay to record the conversation if they seem tired?
+### Is it okay to record the conversation if they seem tired?
 
 Always ask for permission before recording, and stop immediately if they show signs of fatigue or distress. Their comfort is more important than capturing every detail. You can always resume the conversation another day when they are feeling more energetic.
 
-### ### How long should a storytelling session last?
+### How long should a storytelling session last?
 
 There is no fixed time, but 20 to 30 minutes is often a comfortable maximum for focused storytelling. Watch for signs of fatigue, such as shorter sentences or looking away, and wrap up gently to leave the door open for next time.
 
-### ### What if my parent gets upset talking about a specific topic?
+### What if my parent gets upset talking about a specific topic?
 
 Stop immediately and acknowledge their feeling by saying "I can see that brings up a lot." Gently pivot to a neutral, present-moment observation like the weather or a shared meal. Do not push for the full story at the cost of their emotional safety.
 

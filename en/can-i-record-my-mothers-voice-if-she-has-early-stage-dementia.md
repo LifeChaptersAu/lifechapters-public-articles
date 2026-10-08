@@ -4,8 +4,6 @@ description: "Yes, and now is a good time. Learn how to capture her tone and lau
 
 # Can I record my mother's voice if she has early-stage dementia?
 
-Yes, and now is a good time. Learn how to capture her tone and laugh using sensory prompts, even when the narrative starts to slip.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/41b338ce26d3edad4d02.delivery-v1.webp>)
 
 Yes, you can record her voice now. In early-stage dementia, distant memories are often preserved even when short-term recall slips. Focus on sensory prompts and short, low-pressure conversations to capture her tone, laugh, and specific anecdotes. These fragments are valuable for creating a lasting legacy, as they preserve the sound of her personality.
@@ -90,23 +88,23 @@ Ask permission before recording, let the person choose the pace, and pause if th
 
 ## Frequently Asked Questions
 
-### ### Should I tell my mother I am recording her voice?
+### Should I tell my mother I am recording her voice?
 
 Yes. Ask her permission before you start, explain simply that you want to keep her voice and her stories for the family, and let her decide what she is comfortable sharing. If she seems unsure or becomes distressed, stop and try another day, and speak with her doctor if you have questions about her capacity to consent.
 
-### ### How do I get a clear recording of my mum's voice at home?
+### How do I get a clear recording of my mum's voice at home?
 
 Choose a quiet room, switch off the television and any noisy appliances, and place your phone close to her on a soft surface so it does not pick up bumps. Record a short test first and listen back, so you know her voice sounds clear before the real conversation starts.
 
-### ### How often should we have recording conversations?
+### How often should we have recording conversations?
 
 Little and often usually works better than one long session. Treat it as a series of small conversations over months, even one question and one recording on a good day, and stop while it still feels pleasant rather than pushing on when she is tired.
 
-### ### What should I do if my mother gets upset during a recording?
+### What should I do if my mother gets upset during a recording?
 
 Pause the recording and put her comfort first. Offer a break, a cup of tea or a gentler topic, and do not press her to finish the story. Some memories bring up strong feelings, and it is fine to come back to that subject another day, or not at all, if she would rather leave it.
 
-### ### How should I keep and share the recordings with family?
+### How should I keep and share the recordings with family?
 
 Copy each recording off your phone the same week, keep a backup in a second place, and label it with who is speaking, roughly when it was made and what she talks about. A digital file can then be shared with family instantly, so relatives who live far away can hear her voice too.
 

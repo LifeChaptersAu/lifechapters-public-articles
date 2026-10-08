@@ -4,8 +4,6 @@ description: "Stop asking direct questions. Learn to use ambient listening and i
 
 # How do I handle my parent's silence when they refuse to talk about their past?
 
-Stop asking direct questions. Learn to use ambient listening and indirect prompts to create a safe space where your parent feels invited to share, not interrogated.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/a3cabed765f8beb922b7.delivery-v1.webp>)
 
 Stop asking direct questions about the past. Instead, use "ambient listening" and indirect prompts—such as discussing old photographs, shared family rituals, or your own current challenges—to create a safe space where your parent feels invited to share, rather than interrogated. Respect their silence as a boundary, not a rejection.
@@ -86,23 +84,23 @@ The next logical step in preserving these memories is to explore [what practical
 
 ## Frequently Asked Questions
 
-### ### Is it normal for my dad to change the subject when I ask about the war?
+### Is it normal for my dad to change the subject when I ask about the war?
 
 Yes, this is a common deflection mechanism, which is a psychological strategy used to avoid confronting painful or traumatic memories by redirecting the conversation. Try shifting to a sensory detail, such as asking what the base looked like or what they ate, rather than asking about the events themselves. This allows them to share the context without having to confront the emotional weight of the experience directly.
 
-### ### Should I force the conversation if I think they have something to hide?
+### Should I force the conversation if I think they have something to hide?
 
 No, forcing creates defensiveness and can damage the trust you have built. Respect the silence and return to the topic later in a different context, perhaps using an indirect prompt like a photograph or a shared memory. If they are not ready, the story will still be there when they are.
 
-### ### What if my parent says "you're too young to understand"?
+### What if my parent says "you're too young to understand"?
 
 This is often a fear of judgment or a belief that their pain is not relevant to your generation. Respond with curiosity about their perspective at the time, asking what they thought would happen or how they coped, rather than trying to validate your own understanding. This shows you value their experience, not just the outcome.
 
-### ### Can I record the conversation if they are reluctant?
+### Can I record the conversation if they are reluctant?
 
 Only with explicit permission. If they are reluctant to talk, they will likely be reluctant to be recorded, which adds pressure. It is better to have a live conversation where you can take notes or simply listen, and then ask if they would mind you recording a specific, shorter segment later if they feel comfortable.
 
-### ### Does silence mean they don't love me?
+### Does silence mean they don't love me?
 
 No, silence in this context is usually about their own past pain, not their current relationship with you. It is a way of managing their internal experience, not a reflection of their feelings for you. Your presence and patience are what matter most.
 

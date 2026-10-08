@@ -4,8 +4,6 @@ description: "Refusal is usually a reaction to the \"project\" frame. Learn thre
 
 # What do I do if my grandparent refuses to record their life story?
 
-Refusal is usually a reaction to the "project" frame. Learn three low-pressure conversational pivots to capture their story organically, without forcing a formal interview.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/53aec536e8f5aefd21f4.delivery-v1.webp>)
 
 Stop asking to "record their life story." Instead, shift to specific, sensory prompts about a single object or moment, such as "What did the kitchen smell like when you were ten?" This bypasses the interview trigger, lowers the stakes, and invites a micro-story that can be captured casually, preserving their authentic voice without the pressure of a formal project.
@@ -86,23 +84,23 @@ If you'd like to turn these conversations into a written book and an audiobook n
 
 ## Frequently Asked Questions
 
-### ### Is it rude to keep asking if they said no?
+### Is it rude to keep asking if they said no?
 
 No, but change the frame. If they refuse "recording," ask about a specific memory. If they refuse that too, stop and respect the boundary. The goal is to create a safe space, not to win an argument.
 
-### ### What if they only want to talk about the past, not their current life?
+### What if they only want to talk about the past, not their current life?
 
 That is valid; the past is their domain; let them lead the timeline. They may feel more comfortable discussing memories than current events, especially if they feel their current life is less significant.
 
-### ### Can I record them without telling them?
+### Can I record them without telling them?
 
 No. Always ask for permission, but frame it as "Can I keep this note?" rather than "Can I record a session?" This lowers the stakes and makes it feel less like a formal interview.
 
-### ### What if they get emotional and cry?
+### What if they get emotional and cry?
 
 Pause; offer a tissue; do not apologize; let them lead. Emotion is often the signal that the story is reaching the core. It is a sign of trust, not distress.
 
-### ### Do I need to edit the story before sharing it?
+### Do I need to edit the story before sharing it?
 
 Only if they ask. Authentic voice, including pauses and repetitions, is often more valuable than a polished narrative. The imperfections are part of the human experience and add depth to the memory.
 

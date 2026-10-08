@@ -4,8 +4,6 @@ description: "Capture the daily rhythms, quirks, and sensory comforts that medic
 
 # How do I document my parent's personality before aged care?
 
-Capture the daily rhythms, quirks, and sensory comforts that medical records miss, so your parent stays themselves in a new environment.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/bb2b16b28499a07b182c.delivery-v1.webp>)
 
 Ask about specific daily rituals and sensory comforts rather than general preferences, and record their voice if they are comfortable with it. This creates a practical profile of who they are that complements medical plans, helping caregivers understand not just what your parent needs, but who they are.
@@ -90,23 +88,23 @@ It is small; it is not a life story; but it is a piece of them. And when the nur
 
 ## Frequently Asked Questions
 
-### ### How much detail is too much for a care facility?
+### How much detail is too much for a care facility?
 
 Share what helps the staff understand the person in the present moment. Focus on current preferences, sensory triggers, and daily routines rather than exhaustive biographical history. A concise one-page profile is often more useful than a long document, as it is easier for busy staff to reference quickly during care.
 
-### ### Can I record my parent’s voice if they have dementia?
+### Can I record my parent’s voice if they have dementia?
 
 Yes, if they are comfortable with it. Focus on capturing their reactions and preferences in the present moment rather than testing their factual recall. Ensure you have their consent if they are capable of giving it, and check with their healthcare team if capacity is a concern. The goal is comfort and connection, not assessment.
 
-### ### What if my parent refuses to talk about their past?
+### What if my parent refuses to talk about their past?
 
 Respect their boundary and do not push. Shift the focus to their current preferences, daily routines, and immediate comfort needs. You can still document valuable "soft data" by observing their behaviour, noting what they like and dislike, and asking simple questions about their present experience rather than their history.
 
-### ### Is there a legal requirement to provide a personality profile?
+### Is there a legal requirement to provide a personality profile?
 
 No, it is not a legal document like an Enduring Power of Attorney. However, it is strongly recommended for person-centred care. Providing this information helps the care facility meet their obligations to provide individualised, respectful care, and it ensures that your parent’s unique needs and preferences are understood beyond the clinical basics.
 
-### ### How do I handle sibling disagreements about what to share?
+### How do I handle sibling disagreements about what to share?
 
 Focus on your parent’s best interests and current well-being. Prioritise information that directly impacts their comfort and safety, such as medical preferences or sensory triggers. Try to keep the discussion separate from family dynamics, and if possible, agree on a shared document that reflects the parent’s own stated wishes and observed needs.
 

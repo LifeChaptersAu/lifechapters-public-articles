@@ -4,8 +4,6 @@ description: "Move beyond dates and facts by asking questions that reveal humor,
 
 # What specific questions should I ask to capture my parent's personality?
 
-Move beyond dates and facts by asking questions that reveal humor, values, and the specific moments that define who your parent really is.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/53aec536e8f5aefd21f4.delivery-v1.webp>)
 
 Ask questions that require storytelling rather than facts. Instead of "When did you meet Mum?", ask "What was the first thing you noticed about her, and what did you think of her at the time?" This forces the parent to reveal their perception, humor, and values, which are the core of their personality.
@@ -83,23 +81,23 @@ If you are looking for a structured way to preserve these conversations, [what p
 
 ## Frequently Asked Questions
 
-### ### What if my parent gets bored after five questions?
+### What if my parent gets bored after five questions?
 
 Shift to a sensory question, such as "What did the kitchen smell like when you were cooking?" or a humorous one to re-engage their narrative flow. These types of questions are less demanding and often spark a more relaxed, conversational tone.
 
-### ### Can I use these questions for a grandparent with early-stage dementia?
+### Can I use these questions for a grandparent with early-stage dementia?
 
 Yes, but keep them simple and sensory. Focus on "What did you love most about that time?" rather than complex chronological details, as this aligns with person-centred communication approaches that reduce cognitive load.
 
-### ### Do I need to ask all these questions in one sitting?
+### Do I need to ask all these questions in one sitting?
 
 No; personality is revealed in fragments. Spread these prompts over several casual conversations over weeks. This allows the relationship to deepen and the stories to emerge naturally.
 
-### ### What if my parent refuses to talk about certain topics?
+### What if my parent refuses to talk about certain topics?
 
 You can pivot the conversation to other topics where their humor or values are evident, allowing you to capture their personality without pressuring them to discuss the specific boundary they have set.
 
-### ### Is it better to ask open-ended or specific questions?
+### Is it better to ask open-ended or specific questions?
 
 Start specific to reveal a memory, then go open-ended ("Tell me more about that") to let the personality emerge. This combination helps guide the conversation while allowing space for the person to express themselves.
 

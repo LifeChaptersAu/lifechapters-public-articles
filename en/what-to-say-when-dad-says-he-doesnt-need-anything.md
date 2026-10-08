@@ -4,8 +4,6 @@ description: "Shift from buying objects to preserving his voice. Learn specific 
 
 # What to say when dad says he doesn't need anything?
 
-Shift from buying objects to preserving his voice. Learn specific phrases to bypass the practicality wall and connect with his need for autonomy and legacy.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/bd87bf2e8d75554c6364.delivery-v1.webp>)
 
 Stop asking what he wants and start asking what he wants to remember. When he says he doesn't need anything, he is protecting his autonomy, not rejecting your love. Shift the conversation from purchasing an object to preserving his voice. By framing the gesture as a way for him to control how his story is told, you remove the pressure of receiving and replace it with the dignity of sharing.
@@ -82,23 +80,23 @@ If you are looking for a structured way to guide these conversations, LifeChapte
 
 ## Frequently Asked Questions
 
-### ### Is it too late to start recording my dad's story if he is in his 80s?
+### Is it too late to start recording my dad's story if he is in his 80s?
 
 No, age is not a barrier to starting; the goal is capturing what is still vivid and meaningful to him, not a complete historical record. Many people find that their recollections are sharp and detailed well into their later years, especially when prompted by specific questions or sensory cues.
 
-### ### What if my dad gets angry or defensive when I ask about his past?
+### What if my dad gets angry or defensive when I ask about his past?
 
 Stop immediately. Acknowledge his feelings, apologize for the pressure, and shift to a lighter topic. Respect his boundary; you can try again later with a different, less sensitive prompt. It is important to maintain a positive and respectful relationship above all else.
 
-### ### Do I need to buy a specific product to do this?
+### Do I need to buy a specific product to do this?
 
 No, the core value is in the conversation. A product is just a container for the story. You can start with a simple voice memo on your phone, a notebook, or even just a quiet conversation. The most important thing is to listen and to show genuine interest in his perspective.
 
-### ### Can I record my dad if he has early-stage dementia?
+### Can I record my dad if he has early-stage dementia?
 
 Yes, but always ask for his permission first and focus on comfort rather than length. Use present-tense prompts and accept that details may be fragmented, prioritizing his emotional well-being and avoiding stress or confusion.
 
-### ### What if my siblings don't want to be involved?
+### What if my siblings don't want to be involved?
 
 Start with your own relationship and your own questions. You can share the recordings later if they choose to listen. Do not force collaboration. Respect their boundaries and focus on your own connection with your father. The goal is to create a meaningful memory, not to involve everyone in the process.
 

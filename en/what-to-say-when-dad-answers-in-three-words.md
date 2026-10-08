@@ -4,8 +4,6 @@ description: "Decode the stoic wall with specific bridge phrases and side-by-sid
 
 # What to say when dad answers in three words?
 
-Decode the stoic wall with specific bridge phrases and side-by-side positioning, turning brief answers into shared reflection without pushing for more details.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/f8c468e25d1423f27d06.delivery-v1.webp>)
 
 When Dad answers in three words, do not push for more details immediately. Instead, validate the brevity with a specific, low-stakes observation about the context, then pause. This shifts the dynamic from interrogation to shared reflection, often prompting him to elaborate on the feeling behind the words rather than the facts.
@@ -76,23 +74,23 @@ The most important part is the conversation itself, which is yours to have. If y
 
 ## Frequently Asked Questions
 
-### ### Is it normal for my dad to stop talking after I ask a deep question?
+### Is it normal for my dad to stop talking after I ask a deep question?
 
 Yes, this is a common defense mechanism. It is not a rejection of you, but a retreat to safety. When you ask a deep question, he may feel exposed. If he goes quiet, do not push. Give him space, and let him know it is okay to just sit with you.
 
-### ### What if he gets angry when I ask about the past?
+### What if he gets angry when I ask about the past?
 
 Stop immediately. Apologize for the pressure and change the subject to a light, present-tense topic. Do not try to "fix" the anger in the moment. Let it pass, and try again another day, perhaps with a lighter question.
 
-### ### Can I record him without him knowing?
+### Can I record him without him knowing?
 
 No; always ask for permission. Recording without consent can damage trust and is ethically problematic. If he is not comfortable with recording, respect that boundary. The value is in the conversation, not just the audio file.
 
-### ### What if he says "I don't remember"?
+### What if he says "I don't remember"?
 
 This is often a polite way of saying "I don't want to talk about this." Respect the boundary and move on to a different topic. Do not try to jog his memory with prompts. Let him lead the conversation.
 
-### ### How long should I wait before asking again?
+### How long should I wait before asking again?
 
 There is no set time. Wait until the next natural, low-pressure moment, such as a shared activity like driving or gardening. The key is to make the question feel like a casual part of the day, not a scheduled interview.
 

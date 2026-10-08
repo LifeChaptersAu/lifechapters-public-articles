@@ -4,8 +4,6 @@ description: "Compare the hidden costs of DIY biography writing against professi
 
 # Is it worth paying for a professional to write my parent's biography?
 
-Compare the hidden costs of DIY biography writing against professional help during a care move, and find out how to preserve your parent's voice without the emotional labour.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/12b7b92bb881635a98b2.delivery-v1.webp>)
 
 It is worth paying for a professional if your primary goal is a coherent, edited narrative that captures your parent’s voice without the emotional labor of interviewing them. While DIY methods are cheaper, they often result in fragmented notes that lack structure and emotional depth. A professional service transforms scattered memories into a lasting legacy, which is often more valuable than the cost savings during a stressful transition.
@@ -72,23 +70,23 @@ Ask permission before recording, let the person choose the pace, and pause if th
 
 ## Frequently Asked Questions
 
-### ### How long does it take to write a parent's biography before they move into care?
+### How long does it take to write a parent's biography before they move into care?
 
 Most professional services typically take a few weeks to complete a project, depending on the parent's availability and the depth of the story. This timeline allows for interviews, editing and production, ensuring a polished final product before the move.
 
-### ### Can I write my parent's biography if they have early-stage dementia?
+### Can I write my parent's biography if they have early-stage dementia?
 
 Yes, but it requires a different approach. Focus on present-moment conversations and existing memories rather than chronological history. A professional can help navigate this by asking questions that elicit immediate responses and emotions.
 
-### ### Is a professional biography a tax-deductible expense in Australia?
+### Is a professional biography a tax-deductible expense in Australia?
 
 This is typically treated as a personal expense rather than a business or medical deduction. It is an investment in family legacy, not a financial asset, so you should consult a tax professional for advice specific to your situation.
 
-### ### What if my parent refuses to talk to a professional?
+### What if my parent refuses to talk to a professional?
 
 You can start by sharing your own notes or recordings with the professional, who can then help structure them into a narrative without requiring new interviews. This respects your parent's wishes while still preserving their story.
 
-### ### How do I decide if I have the energy to write my parent's story myself?
+### How do I decide if I have the energy to write my parent's story myself?
 
 Assess your current stress levels and available time, because the move to aged care is a major logistical and emotional burden. If you are already exhausted from managing the transition, it is better to let a professional handle the writing so you can focus on your parent's immediate needs.
 

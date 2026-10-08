@@ -4,8 +4,6 @@ description: "It is a sign of deep trust, not rejection. Learn how to respect th
 
 # What if my grandparent prefers to talk to one person only?
 
-It is a sign of deep trust, not rejection. Learn how to respect this boundary, handle the guilt of being chosen, and capture the story in a safe, one-on-one setting.
-
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/4a5df017605393dcea6a.delivery-v1.webp>)
 
 If your grandparent prefers to talk to one person only, view this as a sign of trust, not rejection. Respect their boundary by allowing that one person to lead the conversation. Structure a single, low-pressure session that focuses on listening rather than interviewing, ensuring the story is captured in the intimate, one-on-one environment where they feel safe to share.
@@ -80,27 +78,27 @@ LifeChapters is an Australian service that turns a life story into a book and an
 
 ## Frequently Asked Questions
 
-### ### Is it rude for my grandparent to only talk to one grandchild?
+### Is it rude for my grandparent to only talk to one grandchild?
 
 No, it is not rude. It is a preference for a specific dynamic, not a judgment on the other grandchildren. They are choosing a safe harbour where they do not need to perform for an audience, which is a common and healthy way for older adults to share personal stories.
 
-### ### Can I record the conversation if my grandparent is only talking to me?
+### Can I record the conversation if my grandparent is only talking to me?
 
 Yes, with their explicit permission, you can record audio to share later. Ensure they are comfortable with the device and explain that the recording is for the family's benefit, not for public release. If they are not comfortable, respect that and simply listen.
 
-### ### What if my grandparent says they have nothing interesting to say?
+### What if my grandparent says they have nothing interesting to say?
 
 This is often a reflex of modesty. Gently guide them to specific memories, such as a particular day, a meal, or a place. Ask about their feelings rather than just facts. Let them know that their life is interesting to you, even if they do not see it that way.
 
-### ### How do I explain to my siblings why I am the only one recording?
+### How do I explain to my siblings why I am the only one recording?
 
 Frame it as respecting your grandparent's comfort zone and their desire for a private, one-on-one connection. Explain that they prefer a quiet, low-pressure setting, and that this allows them to share more freely. Reassure them that the story will be shared with the family later.
 
-### ### Is it better to have a professional interviewer if my grandparent is selective?
+### Is it better to have a professional interviewer if my grandparent is selective?
 
 It depends. If the professional is the one they trust, it can be ideal. But if they only trust you, your presence is the key. A professional can help with the technical side, but the relationship is what allows the story to flow.
 
-### ### What if my grandparent becomes distressed during the conversation?
+### What if my grandparent becomes distressed during the conversation?
 
 Stop immediately. Comfort and permission take priority over completing the recording. Move to a lighter topic, or end the session. Check in with them later, and ensure they feel safe and supported. Their well-being is more important than the story.
 
