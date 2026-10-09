@@ -9,7 +9,7 @@
 * [What To Say When Mum Repeats Herself During Recording?](what-to-say-when-mum-repeats-herself-during-recording.md)
 * [How Do I Turn Scattered Family Stories Into A Coherent Narrative?](how-can-i-turn-my-parents-scattered-stories-into-a-coherent-narrative.md)
 * [How do I handle it when my grandparent repeats the same story over and over?](how-do-i-handle-it-when-my-grandparent-repeats-the-same-story-over-and.md)
-* [How do I handle my parent's silence when they refuse to talk about their past?](how-do-i-handle-my-parents-silence-when-they-refuse-to-talk-about-their.md)
+* [How Do I Handle My Parent's Silence When They Refuse To Talk About Their Past?](how-do-i-handle-my-parents-silence-when-they-refuse-to-talk-about-their.md)
 * [How Do I Keep the Conversation Going If They Give Short Answers?](how-do-i-keep-the-conversation-going-if-they-give-short-answers.md)
 * [How do I record my dad's story without it feeling like an interview?](how-do-i-record-my-dads-story-without-it-feeling-like-an-interview.md)
 * [How do I start a life story conversation without it feeling like an interview?](how-do-i-start-a-life-story-conversation-without-it-feeling-like-an.md)

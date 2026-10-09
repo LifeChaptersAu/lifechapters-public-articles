@@ -2,7 +2,7 @@
 description: "Stop asking direct questions. Learn to use ambient listening and indirect prompts to create a safe space where your parent feels invited to share, not interrogated."
 ---
 
-# How do I handle my parent's silence when they refuse to talk about their past?
+# How Do I Handle My Parent's Silence When They Refuse To Talk About Their Past?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/a3cabed765f8beb922b7.delivery-v1.webp>)
 
