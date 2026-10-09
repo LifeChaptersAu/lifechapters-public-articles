@@ -7,7 +7,7 @@
 * [What If My Grandparent Prefers To Talk To One Person Only?](what-if-my-grandparent-prefers-to-talk-to-one-person-only.md)
 * [What to say when dad says he doesn't need anything?](what-to-say-when-dad-says-he-doesnt-need-anything.md)
 * [What to say when mum repeats herself during recording?](what-to-say-when-mum-repeats-herself-during-recording.md)
-* [How do I turn scattered family stories into a coherent narrative?](how-can-i-turn-my-parents-scattered-stories-into-a-coherent-narrative.md)
+* [How Do I Turn Scattered Family Stories Into A Coherent Narrative?](how-can-i-turn-my-parents-scattered-stories-into-a-coherent-narrative.md)
 * [How do I handle it when my grandparent repeats the same story over and over?](how-do-i-handle-it-when-my-grandparent-repeats-the-same-story-over-and.md)
 * [How do I handle my parent's silence when they refuse to talk about their past?](how-do-i-handle-my-parents-silence-when-they-refuse-to-talk-about-their.md)
 * [How Do I Keep the Conversation Going If They Give Short Answers?](how-do-i-keep-the-conversation-going-if-they-give-short-answers.md)

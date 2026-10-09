@@ -2,7 +2,7 @@
 description: "A practical guide to sorting oral memories into a clear flow, with specific questions and structural tips for Australian families."
 ---
 
-# How do I turn scattered family stories into a coherent narrative?
+# How Do I Turn Scattered Family Stories Into A Coherent Narrative?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/53aec536e8f5aefd21f4.delivery-v1.webp>)
 
