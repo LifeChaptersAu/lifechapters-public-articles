@@ -2,7 +2,7 @@
 description: "Stop the formal setup. Use ambient listening and shared activities to let stories flow naturally, bypassing the defensive performance mode that shuts parents down."
 ---
 
-# How do I start a life story conversation without it feeling like an interview?
+# How Do I Start A Life Story Conversation Without It Feeling Like An Interview?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/bb2b16b28499a07b182c.delivery-v1.webp>)
 
