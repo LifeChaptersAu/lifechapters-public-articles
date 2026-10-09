@@ -2,7 +2,7 @@
 description: "Move beyond dates and facts by asking questions that reveal humor, values, and the specific moments that define who your parent really is."
 ---
 
-# What specific questions should I ask to capture my parent's personality?
+# What Specific Questions Should I Ask To Capture My Parent's Personality?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/53aec536e8f5aefd21f4.delivery-v1.webp>)
 
