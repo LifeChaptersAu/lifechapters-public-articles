@@ -2,7 +2,7 @@
 description: "Refusal is usually a reaction to the \"project\" frame. Learn three low-pressure conversational pivots to capture their story organically, without forcing a formal interview."
 ---
 
-# What do I do if my grandparent refuses to record their life story?
+# What Do I Do If My Grandparent Refuses To Record Their Life Story?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/53aec536e8f5aefd21f4.delivery-v1.webp>)
 

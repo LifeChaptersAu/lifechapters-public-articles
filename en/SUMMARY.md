@@ -15,7 +15,7 @@
 * [How do I start a life story conversation without it feeling like an interview?](how-do-i-start-a-life-story-conversation-without-it-feeling-like-an.md)
 * [Is giving a biography too personal a gift for Mother's Day?](is-giving-a-biography-too-personal-a-gift-for-mothers-day.md)
 * [Is it worth paying for a professional to write my parent's biography?](is-it-worth-paying-for-a-professional-to-write-my-parents-biography-if.md)
-* [What do I do if my grandparent refuses to record their life story?](what-do-i-do-if-my-grandparent-refuses-to-record-their-life-story.md)
+* [What Do I Do If My Grandparent Refuses To Record Their Life Story?](what-do-i-do-if-my-grandparent-refuses-to-record-their-life-story.md)
 * [How do I document my parent's personality before aged care?](what-is-the-best-way-to-document-my-parents-daily-routines-and.md)
 * [What Specific Questions Should I Ask To Capture My Parent's Personality?](what-specific-questions-should-i-ask-to-capture-my-parents-unique.md)
 * [What to do if my grandparent gets emotional during a life story interview?](what-to-do-if-my-grandparent-gets-emotional-during-a-life-story.md)
