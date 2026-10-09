@@ -2,7 +2,7 @@
 description: "Gentle scripts and technical reframing to handle repetition without correcting her, preserving the emotional weight of the moment."
 ---
 
-# What to say when mum repeats herself during recording?
+# What To Say When Mum Repeats Herself During Recording?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/8d513dd15eaabbdcfa7b.delivery-v1.webp>)
 
