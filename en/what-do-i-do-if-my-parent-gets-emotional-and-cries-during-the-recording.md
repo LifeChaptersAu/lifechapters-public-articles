@@ -2,7 +2,7 @@
 description: "A gentle guide to handling tears without pausing the story, validating their emotions, and keeping the moment real."
 ---
 
-# What to do when your parent cries during recording?
+# What To Do When Your Parent Cries During Recording?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/dd4b744cb18ab635fc26.delivery-v1.webp>)
 
