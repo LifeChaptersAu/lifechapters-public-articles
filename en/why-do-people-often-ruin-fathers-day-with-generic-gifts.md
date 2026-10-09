@@ -2,7 +2,7 @@
 description: "Most dads say they want nothing, but they really want to feel known. This explains why generic gifts land flat and offers one simple conversation to change that."
 ---
 
-# Why do people often ruin Father's Day with generic gifts?
+# Why Do People Often Ruin Father's Day With Generic Gifts?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/12b7b92bb881635a98b2.delivery-v1.webp>)
 
