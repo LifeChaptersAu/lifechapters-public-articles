@@ -2,7 +2,7 @@
 description: "Shift from buying objects to preserving his voice. Learn specific phrases to bypass the practicality wall and connect with his need for autonomy and legacy."
 ---
 
-# What to say when dad says he doesn't need anything?
+# What To Say When Dad Says He Doesn't Need Anything?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/bd87bf2e8d75554c6364.delivery-v1.webp>)
 
