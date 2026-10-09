@@ -2,7 +2,7 @@
 description: "Decode the stoic wall with specific bridge phrases and side-by-side positioning, turning brief answers into shared reflection without pushing for more details."
 ---
 
-# What to say when dad answers in three words?
+# What To Say When Dad Answers In Three Words?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/f8c468e25d1423f27d06.delivery-v1.webp>)
 

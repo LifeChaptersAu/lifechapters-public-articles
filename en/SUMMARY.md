@@ -19,7 +19,7 @@
 * [How do I document my parent's personality before aged care?](what-is-the-best-way-to-document-my-parents-daily-routines-and.md)
 * [What Specific Questions Should I Ask To Capture My Parent's Personality?](what-specific-questions-should-i-ask-to-capture-my-parents-unique.md)
 * [What to do if my grandparent gets emotional during a life story interview?](what-to-do-if-my-grandparent-gets-emotional-during-a-life-story.md)
-* [What to say when dad answers in three words?](what-to-say-when-dad-answers-in-three-words.md)
+* [What To Say When Dad Answers In Three Words?](what-to-say-when-dad-answers-in-three-words.md)
 * [Why Do People Often Ruin Father's Day With Generic Gifts?](why-do-people-often-ruin-fathers-day-with-generic-gifts.md)
 * [Why does my dad reject thoughtful gifts and only want practical items?](why-does-my-dad-reject-thoughtful-gifts-and-only-want-practical-items.md)
 * [Can I record my mother's voice if she has early-stage dementia?](can-i-record-my-mothers-voice-if-she-has-early-stage-dementia.md)
