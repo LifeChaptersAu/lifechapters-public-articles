@@ -24,6 +24,7 @@
 * [Why Does My Dad Reject Thoughtful Gifts And Only Want Practical Items?](why-does-my-dad-reject-thoughtful-gifts-and-only-want-practical-items.md)
 * [Can I record my mother's voice if she has early-stage dementia?](can-i-record-my-mothers-voice-if-she-has-early-stage-dementia.md)
 * [What Are The Most Important Questions To Ask A Grandparent This Christmas?](most-important-questions-to-ask-a-grandparent-this-christmas.md)
+* [What Is A Better Birthday Gift Than Cash For A Grandparent Who Has Everything?](what-is-a-better-birthday-gift-than-cash-for-a-grandparent-who-has.md)
 * [What Questions Should I Ask My Dad About His Childhood?](what-questions-should-i-ask-my-dad-about-his-childhood.md)
 * [What Should I Give My Grandparent For Their 80th Birthday To Actually Matter?](what-should-i-give-my-grandparent-for-their-80th-birthday-to-actually.md)
 <!-- lifechapters:articles:end -->
