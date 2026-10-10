@@ -23,6 +23,7 @@
 * [Why Do People Often Ruin Father's Day With Generic Gifts?](why-do-people-often-ruin-fathers-day-with-generic-gifts.md)
 * [Why Does My Dad Reject Thoughtful Gifts And Only Want Practical Items?](why-does-my-dad-reject-thoughtful-gifts-and-only-want-practical-items.md)
 * [Can I record my mother's voice if she has early-stage dementia?](can-i-record-my-mothers-voice-if-she-has-early-stage-dementia.md)
+* [How Do I Make My Grandparent Feel Heard At Their 90th Birthday Party?](how-do-i-make-my-grandparent-feel-heard-at-their-90th-birthday-party.md)
 * [What Are The Most Important Questions To Ask A Grandparent This Christmas?](most-important-questions-to-ask-a-grandparent-this-christmas.md)
 * [What Is A Better Birthday Gift Than Cash For A Grandparent Who Has Everything?](what-is-a-better-birthday-gift-than-cash-for-a-grandparent-who-has.md)
 * [What Questions Should I Ask My Dad About His Childhood?](what-questions-should-i-ask-my-dad-about-his-childhood.md)
