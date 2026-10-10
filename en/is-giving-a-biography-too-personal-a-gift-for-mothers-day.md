@@ -2,7 +2,7 @@
 description: "It feels like overstepping, but it is an invitation to be seen. Here is how to frame it as a collaborative project where she controls the narrative, not an intrusion."
 ---
 
-# Is giving a biography too personal a gift for Mother's Day?
+# Is Giving A Biography Too Personal A Gift For Mother's Day?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/14eb51404db3e29eb379.delivery-v1.webp>)
 
