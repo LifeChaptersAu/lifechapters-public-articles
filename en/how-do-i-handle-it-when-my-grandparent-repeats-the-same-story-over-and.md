@@ -2,7 +2,7 @@
 description: "A gentle three-step technique to turn repetitive storytelling into connection, validating your frustration and helping you preserve the meaning behind the loop."
 ---
 
-# How do I handle it when my grandparent repeats the same story over and over?
+# How Do I Handle It When My Grandparent Repeats The Same Story Over And Over?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/a3cabed765f8beb922b7.delivery-v1.webp>)
 
