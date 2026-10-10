@@ -2,7 +2,7 @@
 description: "Stop the recording, acknowledge the feeling, and let the silence sit. Here is a simple pause-validate-resume method to handle tears without breaking the connection."
 ---
 
-# What to do if my grandparent gets emotional during a life story interview?
+# What To Do If My Grandparent Gets Emotional During A Life Story Interview?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/4d0faec63e4486aff00e.delivery-v1.webp>)
 
