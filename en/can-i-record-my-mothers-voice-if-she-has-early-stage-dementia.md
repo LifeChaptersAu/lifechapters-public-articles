@@ -2,7 +2,7 @@
 description: "Yes, and now is a good time. Learn how to capture her tone and laugh using sensory prompts, even when the narrative starts to slip."
 ---
 
-# Can I record my mother's voice if she has early-stage dementia?
+# Can I Record My Mother's Voice If She Has Early-Stage Dementia?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/41b338ce26d3edad4d02.delivery-v1.webp>)
 

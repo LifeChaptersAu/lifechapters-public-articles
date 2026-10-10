@@ -22,7 +22,7 @@
 * [What To Say When Dad Answers In Three Words?](what-to-say-when-dad-answers-in-three-words.md)
 * [Why Do People Often Ruin Father's Day With Generic Gifts?](why-do-people-often-ruin-fathers-day-with-generic-gifts.md)
 * [Why Does My Dad Reject Thoughtful Gifts And Only Want Practical Items?](why-does-my-dad-reject-thoughtful-gifts-and-only-want-practical-items.md)
-* [Can I record my mother's voice if she has early-stage dementia?](can-i-record-my-mothers-voice-if-she-has-early-stage-dementia.md)
+* [Can I Record My Mother's Voice If She Has Early-Stage Dementia?](can-i-record-my-mothers-voice-if-she-has-early-stage-dementia.md)
 * [What Practical Steps Should I Take To Preserve My Parents' Life Story Before Aged Care?](what-practical-steps-should-i-take-to-preserve-my-parents-life-story.md)
 * [How Do I Make My Grandparent Feel Heard At Their 90th Birthday Party?](how-do-i-make-my-grandparent-feel-heard-at-their-90th-birthday-party.md)
 * [What Are The Most Important Questions To Ask A Grandparent This Christmas?](most-important-questions-to-ask-a-grandparent-this-christmas.md)
