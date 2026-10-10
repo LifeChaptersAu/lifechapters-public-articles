@@ -2,7 +2,7 @@
 description: "Capture the daily rhythms, quirks, and sensory comforts that medical records miss, so your parent stays themselves in a new environment."
 ---
 
-# How do I document my parent's personality before aged care?
+# How Do I Document My Parent's Personality Before Aged Care?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/bb2b16b28499a07b182c.delivery-v1.webp>)
 
