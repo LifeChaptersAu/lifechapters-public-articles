@@ -2,7 +2,7 @@
 description: "Stop accepting one-word replies. Learn to use sensory bridges and open loops to turn quiet moments into rich family stories."
 ---
 
-# How Do I Keep the Conversation Going If They Give Short Answers?
+# How Do I Keep The Conversation Going If They Give Short Answers?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/33cc3e631189264a5d91.delivery-v1.webp>)
 
