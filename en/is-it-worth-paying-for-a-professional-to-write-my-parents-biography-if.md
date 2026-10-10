@@ -2,7 +2,7 @@
 description: "Compare the hidden costs of DIY biography writing against professional help during a care move, and find out how to preserve your parent's voice without the emotional labour."
 ---
 
-# Is it worth paying for a professional to write my parent's biography?
+# Is It Worth Paying For A Professional To Write My Parent's Biography?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/12b7b92bb881635a98b2.delivery-v1.webp>)
 
