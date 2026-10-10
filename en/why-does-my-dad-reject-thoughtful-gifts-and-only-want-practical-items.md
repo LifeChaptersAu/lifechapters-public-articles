@@ -2,7 +2,7 @@
 description: "Your dad saying he needs nothing is not a rejection of you — here is what his practicality protects, and how to give him something he will accept."
 ---
 
-# Why does my dad reject thoughtful gifts and only want practical items?
+# Why Does My Dad Reject Thoughtful Gifts And Only Want Practical Items?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/ae08dbe6a3cc87e161f6.delivery-v1.webp>)
 

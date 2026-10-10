@@ -21,7 +21,7 @@
 * [What To Do If My Grandparent Gets Emotional During A Life Story Interview?](what-to-do-if-my-grandparent-gets-emotional-during-a-life-story.md)
 * [What To Say When Dad Answers In Three Words?](what-to-say-when-dad-answers-in-three-words.md)
 * [Why Do People Often Ruin Father's Day With Generic Gifts?](why-do-people-often-ruin-fathers-day-with-generic-gifts.md)
-* [Why does my dad reject thoughtful gifts and only want practical items?](why-does-my-dad-reject-thoughtful-gifts-and-only-want-practical-items.md)
+* [Why Does My Dad Reject Thoughtful Gifts And Only Want Practical Items?](why-does-my-dad-reject-thoughtful-gifts-and-only-want-practical-items.md)
 * [Can I record my mother's voice if she has early-stage dementia?](can-i-record-my-mothers-voice-if-she-has-early-stage-dementia.md)
 * [What Are The Most Important Questions To Ask A Grandparent This Christmas?](most-important-questions-to-ask-a-grandparent-this-christmas.md)
 <!-- lifechapters:articles:end -->
