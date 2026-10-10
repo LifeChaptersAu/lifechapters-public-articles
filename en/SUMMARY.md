@@ -11,7 +11,7 @@
 * [How Do I Handle It When My Grandparent Repeats The Same Story Over And Over?](how-do-i-handle-it-when-my-grandparent-repeats-the-same-story-over-and.md)
 * [How Do I Handle My Parent's Silence When They Refuse To Talk About Their Past?](how-do-i-handle-my-parents-silence-when-they-refuse-to-talk-about-their.md)
 * [How Do I Keep the Conversation Going If They Give Short Answers?](how-do-i-keep-the-conversation-going-if-they-give-short-answers.md)
-* [How do I record my dad's story without it feeling like an interview?](how-do-i-record-my-dads-story-without-it-feeling-like-an-interview.md)
+* [How Do I Record My Dad's Story Without It Feeling Like An Interview?](how-do-i-record-my-dads-story-without-it-feeling-like-an-interview.md)
 * [How Do I Start A Life Story Conversation Without It Feeling Like An Interview?](how-do-i-start-a-life-story-conversation-without-it-feeling-like-an.md)
 * [Is Giving A Biography Too Personal A Gift For Mother's Day?](is-giving-a-biography-too-personal-a-gift-for-mothers-day.md)
 * [Is It Worth Paying For A Professional To Write My Parent's Biography?](is-it-worth-paying-for-a-professional-to-write-my-parents-biography-if.md)

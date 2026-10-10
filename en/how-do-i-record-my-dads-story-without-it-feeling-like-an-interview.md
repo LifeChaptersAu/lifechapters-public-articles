@@ -2,7 +2,7 @@
 description: "Stop the awkward Q&A. Learn ambient listening techniques to capture natural, unscripted memories through shared activities like driving or fixing a lawnmower."
 ---
 
-# How do I record my dad's story without it feeling like an interview?
+# How Do I Record My Dad's Story Without It Feeling Like An Interview?
 
 ![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/dd4b744cb18ab635fc26.delivery-v1.webp>)
 
