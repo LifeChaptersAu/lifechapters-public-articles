@@ -26,7 +26,7 @@ A sensory bridge is a physical object or a specific sense that acts as a key to 
 
 Hold a photograph in front of her. Do not ask "Who is this?" Ask "What does this house smell like?" Or if you have a recipe card, ask "Did you use the wooden spoon or the metal one for this?"
 
-[![Record While You Ask These Gentle Questions Explore three free guides and record the conversation while you read the questions.](<https://lifechapters.com.au/blog-assets/cta/21a8f1adc904ef533fcd6595.webp>)](<https://lifechapters.com.au/guides?origin_content_id=can-i-use-prompts-if-my-mum-has-early-dementia&cta_template_id=square_a&cta_format=square&cta_design=a&cta_placement=square_inline&cta_position=1&cta_anchor=7&cta_copy_variant=family_1_tailored_v1&locale=en&cta_offer=lead_magnet&lead_magnet_origin=blog&lang=en>)
+[![LIFECHAPTERS · FREE RESOURCES 3 Free Guides to Uncover Your Family's Childhood Stories Thoughtful questions, memory prompts and a guided recorder—all in one place. Choose one question before your next family catch-up.](<https://lifechapters.com.au/blog-assets/cta/e6210ef3749aa992972a8828.webp>)](<https://lifechapters.com.au/guides?origin_content_id=can-i-use-prompts-if-my-mum-has-early-dementia&cta_template_id=square_a&cta_format=square&cta_design=a&cta_placement=square_inline&cta_position=1&cta_anchor=7&cta_copy_variant=family_1_copy_a_v2&locale=en&cta_offer=lead_magnet&lead_magnet_origin=blog&lang=en>)
 
 In Australia, many parents from the mid-20th century have strong sensory memories of specific locations. The sharp, yeasty scent of warm bread from the bakery on the corner, or the rhythmic clatter of the train passing the old house in Perth. These are not just facts; they are emotional anchors. Using these as prompts allows her to access the feeling of the moment without having to explain the logic of why it happened.
 
@@ -50,7 +50,7 @@ This is the most important part; you are not running a data collection exercise;
 
 If she starts to look tired, or if she is repeating herself, or if she is getting agitated, stop. Turn off the recorder; just listen; you do not need to capture every word; you need to capture the connection.
 
-[![Record While You Ask These Gentle Questions Explore three free guides and record the conversation while you read the questions.](<https://lifechapters.com.au/blog-assets/cta/3cce1dbcb9ca775b1e5fa826.webp>)](<https://lifechapters.com.au/guides?origin_content_id=can-i-use-prompts-if-my-mum-has-early-dementia&cta_template_id=square_b&cta_format=square&cta_design=b&cta_placement=square_inline&cta_position=2&cta_anchor=15&cta_copy_variant=family_1_tailored_v1&locale=en&cta_offer=lead_magnet&lead_magnet_origin=blog&lang=en>)
+[![LIFECHAPTERS · FREE RESOURCES How to Record Your Parents' Childhood Stories Without Taking a Single Note Three free guides show you what to ask, while our guided recorder helps capture the conversation. Bring one question to your next visit.](<https://lifechapters.com.au/blog-assets/cta/5967777f85660bcb2dcc97bc.webp>)](<https://lifechapters.com.au/guides?origin_content_id=can-i-use-prompts-if-my-mum-has-early-dementia&cta_template_id=square_b&cta_format=square&cta_design=b&cta_placement=square_inline&cta_position=2&cta_anchor=15&cta_copy_variant=family_1_copy_b_v2&locale=en&cta_offer=lead_magnet&lead_magnet_origin=blog&lang=en>)
 
 Sometimes the most valuable part of the session is the quiet moment where she looks at the photo and smiles, and you both remember together. That moment is worth more than a perfect recording. If the conversation becomes emotional, it is okay to pause. [What do I do if my parent gets emotional and cries during the recording](<https://lifechapters.com.au/blog/what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording>) can help you navigate those moments with care.
 
@@ -107,6 +107,8 @@ See how a conversation can become something your family can keep.
 [Preserve A Life Story](<https://lifechapters.com.au/?jump=how-it-works&utm_source=blog&utm_medium=internal&utm_campaign=blog_internal&utm_content=how_it_works>)
 
 Written by Jayden Crabbe · 13 October 2026
+
+Also available in: [中文](<https://lifechapters.com.au/blog/zh/can-i-use-prompts-if-my-mum-has-early-dementia>) · [Español](<https://lifechapters.com.au/blog/es/can-i-use-prompts-if-my-mum-has-early-dementia>) · [廣東話](<https://lifechapters.com.au/blog/yue/can-i-use-prompts-if-my-mum-has-early-dementia>) · [Ελληνικά](<https://lifechapters.com.au/blog/el/can-i-use-prompts-if-my-mum-has-early-dementia>) · [Italiano](<https://lifechapters.com.au/blog/it/can-i-use-prompts-if-my-mum-has-early-dementia>) · [Tagalog](<https://lifechapters.com.au/blog/tl/can-i-use-prompts-if-my-mum-has-early-dementia>) · [한국어](<https://lifechapters.com.au/blog/ko/can-i-use-prompts-if-my-mum-has-early-dementia>)
 
 [All articles](<https://lifechapters.com.au/blog>) · [How LifeChapters Works](<https://lifechapters.com.au/?jump=how-it-works&utm_source=blog&utm_medium=internal&utm_campaign=blog_internal&utm_content=how_it_works>) · [Questions families ask](<https://lifechapters.com.au/FAQ>)
 
