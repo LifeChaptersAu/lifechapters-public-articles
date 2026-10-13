@@ -4,7 +4,7 @@ description: "A practical guide to framing the invitation, setting up the room, 
 
 # How To Prepare My Parent For A Memory Recording Session
 
-![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/33cc3e631189264a5d91.delivery-v1.webp>)
+![A LifeChapters family story book being shared with family.](<https://lifechapters.com.au/blog-assets/hero/33cc3e631189264a5d91.delivery-v1.webp?hero=cfa7dc8bdb596a36>)
 
 Frame the session as a casual chat rather than an interview, choose a comfortable, low-distraction environment, and start with open-ended questions about easy, positive memories. Keep the first thirty minutes focused on building rapport so your parent feels heard and in control, not interrogated.
 
