@@ -6,6 +6,7 @@
 * [Can I Use Prompts If My Mum Has Early Dementia?](can-i-use-prompts-if-my-mum-has-early-dementia.md)
 * [How Do I Get My Nan To Talk About Her Childhood?](how-do-i-get-my-nan-to-talk-about-her-childhood.md)
 * [How To Prepare My Parent For A Memory Recording Session](how-do-i-prepare-my-parent-for-a-memory-recording-session.md)
+* [What To Give A Grandparent For Christmas That Is Not A Gift?](what-to-give-a-grandparent-for-christmas-that-is-not-a-gift.md)
 * [How Do I Ask My Dad About His First Salary?](how-do-i-ask-my-dad-about-his-first-salary-without-him-shutting-down.md)
 * [How Long Do You Have To Record Memories With Early Dementia?](is-it-too-late-to-record-memories-if-my-parent-has-early-dementia.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
