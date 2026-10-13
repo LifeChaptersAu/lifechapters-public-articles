@@ -3,6 +3,7 @@
 * [LifeChapters](README.md)
 
 <!-- lifechapters:articles:start -->
+* [Can I Use Prompts If My Mum Has Early Dementia?](can-i-use-prompts-if-my-mum-has-early-dementia.md)
 * [How Do I Get My Nan To Talk About Her Childhood?](how-do-i-get-my-nan-to-talk-about-her-childhood.md)
 * [How To Prepare My Parent For A Memory Recording Session](how-do-i-prepare-my-parent-for-a-memory-recording-session.md)
 * [How Do I Ask My Dad About His First Salary?](how-do-i-ask-my-dad-about-his-first-salary-without-him-shutting-down.md)
