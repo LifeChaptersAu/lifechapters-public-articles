@@ -9,6 +9,7 @@
 * [What To Give A Grandparent For Christmas That Is Not A Gift?](what-to-give-a-grandparent-for-christmas-that-is-not-a-gift.md)
 * [How Do I Ask My Dad About His First Salary?](how-do-i-ask-my-dad-about-his-first-salary-without-him-shutting-down.md)
 * [How Long Do You Have To Record Memories With Early Dementia?](is-it-too-late-to-record-memories-if-my-parent-has-early-dementia.md)
+* [What To Say To A Parent Turning 70?](what-to-say-to-a-parent-turning-70.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
 * [What If My Grandparent Prefers To Talk To One Person Only?](what-if-my-grandparent-prefers-to-talk-to-one-person-only.md)
 * [What To Say When Dad Says He Doesn't Need Anything?](what-to-say-when-dad-says-he-doesnt-need-anything.md)
