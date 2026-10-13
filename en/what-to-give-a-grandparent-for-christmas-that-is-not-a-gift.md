@@ -115,7 +115,7 @@ See how a conversation can become something your family can keep.
 
 Written by Jayden Crabbe · 13 October 2026
 
-Also available in: [中文](<https://lifechapters.com.au/blog/zh/what-to-give-a-grandparent-for-christmas-that-is-not-a-gift>) · [Español](<https://lifechapters.com.au/blog/es/what-to-give-a-grandparent-for-christmas-that-is-not-a-gift>)
+Also available in: [中文](<https://lifechapters.com.au/blog/zh/what-to-give-a-grandparent-for-christmas-that-is-not-a-gift>) · [Español](<https://lifechapters.com.au/blog/es/what-to-give-a-grandparent-for-christmas-that-is-not-a-gift>) · [हिन्दी](<https://lifechapters.com.au/blog/hi/what-to-give-a-grandparent-for-christmas-that-is-not-a-gift>) · [العربية](<https://lifechapters.com.au/blog/ar/what-to-give-a-grandparent-for-christmas-that-is-not-a-gift>)
 
 [All articles](<https://lifechapters.com.au/blog>) · [How LifeChapters Works](<https://lifechapters.com.au/?jump=how-it-works&utm_source=blog&utm_medium=internal&utm_campaign=blog_internal&utm_content=how_it_works>) · [Questions families ask](<https://lifechapters.com.au/FAQ>)
 
