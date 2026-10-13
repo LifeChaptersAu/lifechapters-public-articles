@@ -126,6 +126,8 @@ See how a conversation can become something your family can keep.
 
 Written by Jayden Crabbe · 12 October 2026
 
+Also available in: [中文](<https://lifechapters.com.au/blog/zh/what-to-say-to-a-parent-turning-70>) · [Español](<https://lifechapters.com.au/blog/es/what-to-say-to-a-parent-turning-70>) · [हिन्दी](<https://lifechapters.com.au/blog/hi/what-to-say-to-a-parent-turning-70>) · [العربية](<https://lifechapters.com.au/blog/ar/what-to-say-to-a-parent-turning-70>) · [Tiếng Việt](<https://lifechapters.com.au/blog/vi/what-to-say-to-a-parent-turning-70>)
+
 [All articles](<https://lifechapters.com.au/blog>) · [How LifeChapters Works](<https://lifechapters.com.au/?jump=how-it-works&utm_source=blog&utm_medium=internal&utm_campaign=blog_internal&utm_content=how_it_works>) · [Questions families ask](<https://lifechapters.com.au/FAQ>)
 
 [Listen to the existing narration](<https://gflznxvwkwvekuqlyzbd.supabase.co/storage/v1/object/public/blog-audio/what-to-say-to-a-parent-turning-70/en-a59aa98a70a7dbe0.mp3>)
