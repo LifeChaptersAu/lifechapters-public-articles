@@ -20,6 +20,7 @@
 * [What Are Unique Non-Physical Gifts For Grandpa's 80th That He Can Actually Use?](what-are-unique-non-physical-gifts-for-grandpas-80th-that-he-can.md)
 * [What If My Mum Gets Upset When I Ask About The Past?](what-if-my-mum-gets-upset-when-i-ask-about-the-past.md)
 * [What Is The Best Time Of Day To Interview A Parent With Dementia?](what-is-the-best-time-of-day-to-interview-a-parent-with-dementia.md)
+* [What Specific Questions Should I Ask My Dad About His Trade Apprenticeship?](what-specific-questions-should-i-ask-my-dad-about-his-trade.md)
 * [What Still Works For Interviewing A Parent With Memory Loss?](what-still-works-for-interviewing-a-parent-with-memory-loss.md)
 * [What To Ask A Grandparent About Their Daily Routine?](what-to-ask-a-grandparent-about-their-daily-routine.md)
 * [What To Give Mum For Her 80th Birthday That Isn't A Thing?](what-to-give-mum-for-her-80th-birthday-that-isnt-a-thing.md)
