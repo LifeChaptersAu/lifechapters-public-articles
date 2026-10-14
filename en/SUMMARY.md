@@ -10,6 +10,7 @@
 * [How Do I Ask My Dad About His Early Years Without Stress?](how-do-i-ask-my-dad-about-his-early-years-without-stress.md)
 * [How Do I Ask My Dad About His First Salary?](how-do-i-ask-my-dad-about-his-first-salary-without-him-shutting-down.md)
 * [How Do I Ask My Nan About Her School Days Without Her Shutting Down?](how-do-i-ask-my-nan-about-her-school-days-without-her-shutting-down.md)
+* [How Many Times Can I Record My Parent's Life Story?](how-many-times-can-i-record-my-parents-life-story.md)
 * [How Long Do You Have To Record Memories With Early Dementia?](is-it-too-late-to-record-memories-if-my-parent-has-early-dementia.md)
 * [Should I Record My Parent's Voice Before They Lose Their Words?](should-i-record-my-parents-voice-before-they-lose-their-words.md)
 * [Gentle Prompts For Interviewing Someone With Early Memory Loss](what-are-gentle-prompts-for-interviewing-someone-with-early-memory-loss.md)
