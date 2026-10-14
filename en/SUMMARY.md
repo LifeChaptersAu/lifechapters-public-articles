@@ -23,6 +23,7 @@
 * [What Is The Best Time Of Day To Interview A Parent With Dementia?](what-is-the-best-time-of-day-to-interview-a-parent-with-dementia.md)
 * [What Specific Questions Should I Ask My Dad About His Trade Apprenticeship?](what-specific-questions-should-i-ask-my-dad-about-his-trade.md)
 * [What Still Works For Interviewing A Parent With Memory Loss?](what-still-works-for-interviewing-a-parent-with-memory-loss.md)
+* [What To Ask A Grandparent About Their Childhood Home?](what-to-ask-a-grandparent-about-their-childhood-home.md)
 * [What To Ask A Grandparent About Their Daily Routine?](what-to-ask-a-grandparent-about-their-daily-routine.md)
 * [What To Give Mum For Her 80th Birthday That Isn't A Thing?](what-to-give-mum-for-her-80th-birthday-that-isnt-a-thing.md)
 * [What To Say To A Parent Turning 70?](what-to-say-to-a-parent-turning-70.md)
