@@ -21,6 +21,7 @@
 * [What If My Mum Gets Upset When I Ask About The Past?](what-if-my-mum-gets-upset-when-i-ask-about-the-past.md)
 * [What Is The Best Time Of Day To Interview A Parent With Dementia?](what-is-the-best-time-of-day-to-interview-a-parent-with-dementia.md)
 * [What Still Works For Interviewing A Parent With Memory Loss?](what-still-works-for-interviewing-a-parent-with-memory-loss.md)
+* [What To Ask A Grandparent About Their Daily Routine?](what-to-ask-a-grandparent-about-their-daily-routine.md)
 * [What To Give Mum For Her 80th Birthday That Isn't A Thing?](what-to-give-mum-for-her-80th-birthday-that-isnt-a-thing.md)
 * [What To Say To A Parent Turning 70?](what-to-say-to-a-parent-turning-70.md)
 * [What To Say When My Parent Repeats The Same Story?](what-to-say-when-my-parent-repeats-the-same-story.md)
