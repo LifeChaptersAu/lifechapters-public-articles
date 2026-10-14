@@ -9,6 +9,7 @@
 * [What To Give A Grandparent For Christmas That Is Not A Gift?](what-to-give-a-grandparent-for-christmas-that-is-not-a-gift.md)
 * [How Do I Ask My Dad About His Early Years Without Stress?](how-do-i-ask-my-dad-about-his-early-years-without-stress.md)
 * [How Do I Ask My Dad About His First Salary?](how-do-i-ask-my-dad-about-his-first-salary-without-him-shutting-down.md)
+* [How Do I Ask My Mum About Her First Child Without Triggering Grief?](how-do-i-ask-my-mum-about-her-first-child-without-triggering-grief.md)
 * [How Do I Ask My Nan About Her School Days Without Her Shutting Down?](how-do-i-ask-my-nan-about-her-school-days-without-her-shutting-down.md)
 * [How Many Times Can I Record My Parent's Life Story?](how-many-times-can-i-record-my-parents-life-story.md)
 * [How Long Do You Have To Record Memories With Early Dementia?](is-it-too-late-to-record-memories-if-my-parent-has-early-dementia.md)
