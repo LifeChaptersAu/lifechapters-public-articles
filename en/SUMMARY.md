@@ -12,6 +12,7 @@
 * [How Long Do You Have To Record Memories With Early Dementia?](is-it-too-late-to-record-memories-if-my-parent-has-early-dementia.md)
 * [Should I Record My Parent's Voice Before They Lose Their Words?](should-i-record-my-parents-voice-before-they-lose-their-words.md)
 * [Gentle Prompts For Interviewing Someone With Early Memory Loss](what-are-gentle-prompts-for-interviewing-someone-with-early-memory-loss.md)
+* [What Are The Best Questions To Ask My Pop About His First Car?](what-are-the-best-questions-to-ask-my-pop-about-his-first-car.md)
 * [What Are Unique Non-Physical Gifts For Grandpa's 80th That He Can Actually Use?](what-are-unique-non-physical-gifts-for-grandpas-80th-that-he-can.md)
 * [What Still Works For Interviewing A Parent With Memory Loss?](what-still-works-for-interviewing-a-parent-with-memory-loss.md)
 * [What To Give Mum For Her 80th Birthday That Isn't A Thing?](what-to-give-mum-for-her-80th-birthday-that-isnt-a-thing.md)
