@@ -11,6 +11,7 @@
 * [How Do I Ask My Dad About His First Salary?](how-do-i-ask-my-dad-about-his-first-salary-without-him-shutting-down.md)
 * [How Long Do You Have To Record Memories With Early Dementia?](is-it-too-late-to-record-memories-if-my-parent-has-early-dementia.md)
 * [Gentle Prompts For Interviewing Someone With Early Memory Loss](what-are-gentle-prompts-for-interviewing-someone-with-early-memory-loss.md)
+* [What Are Unique Non-Physical Gifts For Grandpa's 80th That He Can Actually Use?](what-are-unique-non-physical-gifts-for-grandpas-80th-that-he-can.md)
 * [What Still Works For Interviewing A Parent With Memory Loss?](what-still-works-for-interviewing-a-parent-with-memory-loss.md)
 * [What To Say To A Parent Turning 70?](what-to-say-to-a-parent-turning-70.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
