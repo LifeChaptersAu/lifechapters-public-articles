@@ -35,6 +35,7 @@
 * [What Equipment Do I Need To Record My Nan?](what-equipment-do-i-need-to-record-my-nan.md)
 * [What Questions Should I Ask My Elderly Parent About Their Friends?](what-questions-should-i-ask-my-elderly-parent-about-their-friends.md)
 * [What To Ask A Veteran About Their Service Years?](what-to-ask-a-veteran-about-their-service-years.md)
+* [What To Do If My Pop Is Too Shy To Talk?](what-to-do-if-my-pop-is-too-shy-to-talk.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
 * [What If My Grandparent Prefers To Talk To One Person Only?](what-if-my-grandparent-prefers-to-talk-to-one-person-only.md)
 * [What To Say When Dad Says He Doesn't Need Anything?](what-to-say-when-dad-says-he-doesnt-need-anything.md)
