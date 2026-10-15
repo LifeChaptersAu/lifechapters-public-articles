@@ -31,6 +31,7 @@
 * [What To Say To A Parent Turning 70?](what-to-say-to-a-parent-turning-70.md)
 * [What To Say When My Parent Repeats The Same Story?](what-to-say-when-my-parent-repeats-the-same-story.md)
 * [How Do I Turn Interview Notes Into A Family Book?](how-do-i-turn-my-messy-interview-notes-into-a-readable-family-book.md)
+* [How Long Does It Take To Record A Family History?](how-long-does-it-take-to-record-a-family-history.md)
 * [Should I Record My Mum's Voice For The Kids?](should-i-record-my-mums-voice-for-the-kids.md)
 * [What Equipment Do I Need To Record My Nan?](what-equipment-do-i-need-to-record-my-nan.md)
 * [What Questions Should I Ask My Elderly Parent About Their Friends?](what-questions-should-i-ask-my-elderly-parent-about-their-friends.md)
