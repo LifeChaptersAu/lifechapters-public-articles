@@ -13,6 +13,7 @@
 * [How Do I Ask My Mum About Her Move To Australia?](how-do-i-ask-my-mum-about-her-move-to-australia-without-making-it-feel.md)
 * [How Do I Ask My Nan About Her School Days Without Her Shutting Down?](how-do-i-ask-my-nan-about-her-school-days-without-her-shutting-down.md)
 * [How Do I Keep My Mum Comfortable During Long Interviews?](how-do-i-keep-my-mum-comfortable-during-long-interviews.md)
+* [How Do I Structure A Family Biography Interview?](how-do-i-structure-a-family-biography-interview-so-it-doesnt-feel-like-a.md)
 * [How Long Does It Take To Record A Parent's Life Story?](how-long-does-it-take-to-record-a-parents-life-story.md)
 * [How Many Times Can I Record My Parent's Life Story?](how-many-times-can-i-record-my-parents-life-story.md)
 * [How Long Do You Have To Record Memories With Early Dementia?](is-it-too-late-to-record-memories-if-my-parent-has-early-dementia.md)
