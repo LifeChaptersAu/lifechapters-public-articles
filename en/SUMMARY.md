@@ -45,6 +45,7 @@
 * [What Do I Do If My Grandparent Corrects My Understanding Of A Memory?](what-do-i-do-if-my-grandparent-corrects-my-understanding-of-a-memory.md)
 * [What To Do If I Can't Remember The Dates Of Family Stories?](what-to-do-if-i-cant-remember-the-dates-of-family-stories.md)
 * [How Do I Ask About My Parent's Failures Without Hurting Their Pride?](how-do-i-ask-about-my-parents-failures-without-hurting-their-pride.md)
+* [What To Say When My Grandparent Gets Angry I Don't Remember The Story?](what-to-say-when-my-grandparent-gets-angry-i-dont-remember-the-story.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
 * [What If My Grandparent Prefers To Talk To One Person Only?](what-if-my-grandparent-prefers-to-talk-to-one-person-only.md)
 * [What To Say When Dad Says He Doesn't Need Anything?](what-to-say-when-dad-says-he-doesnt-need-anything.md)
