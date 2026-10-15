@@ -32,6 +32,7 @@
 * [What To Say When My Parent Repeats The Same Story?](what-to-say-when-my-parent-repeats-the-same-story.md)
 * [How Do I Turn Interview Notes Into A Family Book?](how-do-i-turn-my-messy-interview-notes-into-a-readable-family-book.md)
 * [Should I Record My Mum's Voice For The Kids?](should-i-record-my-mums-voice-for-the-kids.md)
+* [What Equipment Do I Need To Record My Nan?](what-equipment-do-i-need-to-record-my-nan.md)
 * [What Questions Should I Ask My Elderly Parent About Their Friends?](what-questions-should-i-ask-my-elderly-parent-about-their-friends.md)
 * [What To Ask A Veteran About Their Service Years?](what-to-ask-a-veteran-about-their-service-years.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
