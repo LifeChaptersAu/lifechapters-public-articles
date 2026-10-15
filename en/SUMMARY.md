@@ -41,6 +41,7 @@
 * [What To Do If My Pop Is Too Shy To Talk?](what-to-do-if-my-pop-is-too-shy-to-talk.md)
 * [What If My Parent Becomes Angry Instead Of Crying?](what-if-my-parent-becomes-angry-instead-of-crying.md)
 * [What To Do If My Parent Refuses To Talk To A Professional Biographer?](what-to-do-if-my-parent-refuses-to-talk-to-a-professional-biographer.md)
+* [What To Ask Dad Who Grew Up In The 1960s?](what-to-ask-dad-who-grew-up-in-the-1960s.md)
 * [What To Do If I Can't Remember The Dates Of Family Stories?](what-to-do-if-i-cant-remember-the-dates-of-family-stories.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
 * [What If My Grandparent Prefers To Talk To One Person Only?](what-if-my-grandparent-prefers-to-talk-to-one-person-only.md)
