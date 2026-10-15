@@ -30,6 +30,7 @@
 * [What To Give Mum For Her 80th Birthday That Isn't A Thing?](what-to-give-mum-for-her-80th-birthday-that-isnt-a-thing.md)
 * [What To Say To A Parent Turning 70?](what-to-say-to-a-parent-turning-70.md)
 * [What To Say When My Parent Repeats The Same Story?](what-to-say-when-my-parent-repeats-the-same-story.md)
+* [How Do I Ask Sensitive Questions About Family Secrets Without Breaking The Trust?](how-do-i-ask-sensitive-questions-about-family-secrets-without-breaking.md)
 * [How Do I Edit A Messy Family History Recording?](how-do-i-edit-a-messy-family-history-recording-without-losing-the-soul.md)
 * [How Do I Turn Interview Notes Into A Family Book?](how-do-i-turn-my-messy-interview-notes-into-a-readable-family-book.md)
 * [How Long Does It Take To Record A Family History?](how-long-does-it-take-to-record-a-family-history.md)
