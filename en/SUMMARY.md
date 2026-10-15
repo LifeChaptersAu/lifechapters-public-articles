@@ -29,6 +29,7 @@
 * [What To Give Mum For Her 80th Birthday That Isn't A Thing?](what-to-give-mum-for-her-80th-birthday-that-isnt-a-thing.md)
 * [What To Say To A Parent Turning 70?](what-to-say-to-a-parent-turning-70.md)
 * [What To Say When My Parent Repeats The Same Story?](what-to-say-when-my-parent-repeats-the-same-story.md)
+* [Should I Record My Mum's Voice For The Kids?](should-i-record-my-mums-voice-for-the-kids.md)
 * [What Questions Should I Ask My Elderly Parent About Their Friends?](what-questions-should-i-ask-my-elderly-parent-about-their-friends.md)
 * [What To Ask A Veteran About Their Service Years?](what-to-ask-a-veteran-about-their-service-years.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
