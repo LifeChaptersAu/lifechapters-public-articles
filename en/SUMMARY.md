@@ -80,6 +80,7 @@
 * [What Specific Questions Should I Ask To Capture My Parent's Personality?](what-specific-questions-should-i-ask-to-capture-my-parents-unique.md)
 * [What To Do If My Grandparent Gets Emotional During A Life Story Interview?](what-to-do-if-my-grandparent-gets-emotional-during-a-life-story.md)
 * [What To Say When Dad Answers In Three Words?](what-to-say-when-dad-answers-in-three-words.md)
+* [What's The Difference Between An Oral History And A Standard Eulogy?](whats-the-difference-between-an-oral-history-and-a-standard-eulogy.md)
 * [Why Do People Often Ruin Father's Day With Generic Gifts?](why-do-people-often-ruin-fathers-day-with-generic-gifts.md)
 * [Why Does My Dad Reject Thoughtful Gifts And Only Want Practical Items?](why-does-my-dad-reject-thoughtful-gifts-and-only-want-practical-items.md)
 * [Can I Record My Mother's Voice If She Has Early-Stage Dementia?](can-i-record-my-mothers-voice-if-she-has-early-stage-dementia.md)
