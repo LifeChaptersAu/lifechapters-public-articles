@@ -73,6 +73,7 @@
 * [How Do I Keep The Conversation Going If They Give Short Answers?](how-do-i-keep-the-conversation-going-if-they-give-short-answers.md)
 * [How Do I Record My Dad's Story Without It Feeling Like An Interview?](how-do-i-record-my-dads-story-without-it-feeling-like-an-interview.md)
 * [How Do I Start A Life Story Conversation Without It Feeling Like An Interview?](how-do-i-start-a-life-story-conversation-without-it-feeling-like-an.md)
+* [How Long Does It Take To Turn My Grandparent's Stories Into A Book?](how-long-does-it-take-to-turn-my-grandparents-stories-into-a-book.md)
 * [Is Giving A Biography Too Personal A Gift For Mother's Day?](is-giving-a-biography-too-personal-a-gift-for-mothers-day.md)
 * [Is It Worth Paying For A Professional To Write My Parent's Biography?](is-it-worth-paying-for-a-professional-to-write-my-parents-biography-if.md)
 * [What Do I Do If My Grandparent Refuses To Record Their Life Story?](what-do-i-do-if-my-grandparent-refuses-to-record-their-life-story.md)
