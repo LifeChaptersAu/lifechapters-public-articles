@@ -61,6 +61,7 @@
 * [What Specific Questions Should I Ask A Dad Who Grew Up In The 1950s?](what-specific-questions-should-i-ask-a-dad-who-grew-up-in-the-1950s.md)
 * [What To Do If My Grandparent Gets Angry Instead Of Sad?](what-to-do-if-my-grandparent-gets-angry-instead-of-sad.md)
 * [What To Say When My Grandparent Only Wants To Listen At The Party?](what-to-say-when-my-grandparent-only-wants-to-listen-at-the-party.md)
+* [What To Say When My Parent Gets Upset Talking About A Specific Topic?](what-to-say-when-my-parent-gets-upset-talking-about-a-specific-topic.md)
 * [Why Does My Dad Seem Uncomfortable With Sentimental Cards?](why-does-my-dad-seem-uncomfortable-with-sentimental-cards.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
 * [What If My Grandparent Prefers To Talk To One Person Only?](what-if-my-grandparent-prefers-to-talk-to-one-person-only.md)
