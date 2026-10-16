@@ -48,6 +48,7 @@
 * [How Do I Start A Life Story Conversation With A Grandparent?](how-do-i-start-a-life-story-conversation-with-a-grandparent.md)
 * [What To Say When My Grandparent Gets Angry I Don't Remember The Story?](what-to-say-when-my-grandparent-gets-angry-i-dont-remember-the-story.md)
 * [What To Say When My Parent Gets Angry About Recording?](what-to-say-when-my-parent-gets-angry-about-recording.md)
+* [Can I Secretly Record My Grandparent's Life Story?](can-i-secretly-record-my-grandparents-life-story.md)
 * [What To Say To Children When Parent Gets Cancer Diagnosis?](how-do-i-explain-my-diagnosis-to-my-kids-without-breaking-their-trust.md)
 * [How Do I Make Up For Years Of Forgettable Father's Day Gifts?](how-do-i-make-up-for-years-of-forgettable-fathers-day-gifts.md)
 * [How Do I Record My Parent's Story Over The Phone?](how-do-i-record-my-parents-story-over-the-phone.md)
