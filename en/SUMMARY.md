@@ -57,6 +57,7 @@
 * [How Do I Stop Feeling Rejected By My Dad's Gift Preferences?](how-do-i-stop-feeling-rejected-by-my-dads-gift-preferences.md)
 * [How Much Detail Is Too Much When Documenting My Parent For Aged Care?](how-much-detail-is-too-much-when-documenting-my-parent-for-aged-care.md)
 * [What If They Say I Don't Want To Talk About This?](what-if-they-say-i-dont-want-to-talk-about-this.md)
+* [What Specific Questions Should I Ask A Dad Who Grew Up In The 1950s?](what-specific-questions-should-i-ask-a-dad-who-grew-up-in-the-1950s.md)
 * [What To Do If My Grandparent Gets Angry Instead Of Sad?](what-to-do-if-my-grandparent-gets-angry-instead-of-sad.md)
 * [What To Say When My Grandparent Only Wants To Listen At The Party?](what-to-say-when-my-grandparent-only-wants-to-listen-at-the-party.md)
 * [Why Does My Dad Seem Uncomfortable With Sentimental Cards?](why-does-my-dad-seem-uncomfortable-with-sentimental-cards.md)
