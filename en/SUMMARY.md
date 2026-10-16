@@ -54,6 +54,7 @@
 * [How Do I Record My Parent's Story Over The Phone?](how-do-i-record-my-parents-story-over-the-phone.md)
 * [What Do I Do If Siblings Disagree On What To Share With Aged Care?](what-do-i-do-if-siblings-disagree-on-what-to-share-with-aged-care.md)
 * [What To Do If Mum Says Her Life Isn't Interesting Enough To Write Down?](what-to-do-if-mum-says-her-life-isnt-interesting-enough-to-write-down.md)
+* [How Do I Handle Guilt About Recording Dementia Voice?](how-do-i-handle-guilt-about-recording-dementia-voice.md)
 * [How Do I Stop Feeling Rejected By My Dad's Gift Preferences?](how-do-i-stop-feeling-rejected-by-my-dads-gift-preferences.md)
 * [How Much Detail Is Too Much When Documenting My Parent For Aged Care?](how-much-detail-is-too-much-when-documenting-my-parent-for-aged-care.md)
 * [What If They Say I Don't Want To Talk About This?](what-if-they-say-i-dont-want-to-talk-about-this.md)
