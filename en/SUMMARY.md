@@ -50,6 +50,7 @@
 * [What To Say When My Parent Gets Angry About Recording?](what-to-say-when-my-parent-gets-angry-about-recording.md)
 * [How Do I Make Up For Years Of Forgettable Father's Day Gifts?](how-do-i-make-up-for-years-of-forgettable-fathers-day-gifts.md)
 * [How Do I Record My Parent's Story Over The Phone?](how-do-i-record-my-parents-story-over-the-phone.md)
+* [What To Do If Mum Says Her Life Isn't Interesting Enough To Write Down?](what-to-do-if-mum-says-her-life-isnt-interesting-enough-to-write-down.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
 * [What If My Grandparent Prefers To Talk To One Person Only?](what-if-my-grandparent-prefers-to-talk-to-one-person-only.md)
 * [What To Say When Dad Says He Doesn't Need Anything?](what-to-say-when-dad-says-he-doesnt-need-anything.md)
