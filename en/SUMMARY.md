@@ -54,6 +54,7 @@
 * [How Do I Record My Parent's Story Over The Phone?](how-do-i-record-my-parents-story-over-the-phone.md)
 * [What Do I Do If Siblings Disagree On What To Share With Aged Care?](what-do-i-do-if-siblings-disagree-on-what-to-share-with-aged-care.md)
 * [What To Do If Mum Says Her Life Isn't Interesting Enough To Write Down?](what-to-do-if-mum-says-her-life-isnt-interesting-enough-to-write-down.md)
+* [How Do I Stop Feeling Rejected By My Dad's Gift Preferences?](how-do-i-stop-feeling-rejected-by-my-dads-gift-preferences.md)
 * [What To Do If My Grandparent Gets Angry Instead Of Sad?](what-to-do-if-my-grandparent-gets-angry-instead-of-sad.md)
 * [Why Does My Dad Seem Uncomfortable With Sentimental Cards?](why-does-my-dad-seem-uncomfortable-with-sentimental-cards.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
