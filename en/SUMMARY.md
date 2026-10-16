@@ -56,6 +56,7 @@
 * [What To Do If Mum Says Her Life Isn't Interesting Enough To Write Down?](what-to-do-if-mum-says-her-life-isnt-interesting-enough-to-write-down.md)
 * [How Do I Stop Feeling Rejected By My Dad's Gift Preferences?](how-do-i-stop-feeling-rejected-by-my-dads-gift-preferences.md)
 * [How Much Detail Is Too Much When Documenting My Parent For Aged Care?](how-much-detail-is-too-much-when-documenting-my-parent-for-aged-care.md)
+* [What If They Say I Don't Want To Talk About This?](what-if-they-say-i-dont-want-to-talk-about-this.md)
 * [What To Do If My Grandparent Gets Angry Instead Of Sad?](what-to-do-if-my-grandparent-gets-angry-instead-of-sad.md)
 * [Why Does My Dad Seem Uncomfortable With Sentimental Cards?](why-does-my-dad-seem-uncomfortable-with-sentimental-cards.md)
 * [What To Do When Your Parent Cries During Recording?](what-do-i-do-if-my-parent-gets-emotional-and-cries-during-the-recording.md)
