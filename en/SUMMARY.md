@@ -88,6 +88,7 @@
 * [What Practical Steps Should I Take To Preserve My Parents' Life Story Before Aged Care?](what-practical-steps-should-i-take-to-preserve-my-parents-life-story.md)
 * [How Do I Ask My Parents About Their Regrets Without Hurting Them?](how-do-i-ask-my-parents-about-their-regrets-without-hurting-them.md)
 * [How Do I Make My Grandparent Feel Heard At Their 90th Birthday Party?](how-do-i-make-my-grandparent-feel-heard-at-their-90th-birthday-party.md)
+* [Is It Too Late To Record My Dad's Story If He Has Dementia?](is-it-too-late-to-record-my-dads-story-if-he-has-dementia.md)
 * [What Are The Most Important Questions To Ask A Grandparent This Christmas?](most-important-questions-to-ask-a-grandparent-this-christmas.md)
 * [What Is A Better Birthday Gift Than Cash For A Grandparent Who Has Everything?](what-is-a-better-birthday-gift-than-cash-for-a-grandparent-who-has.md)
 * [What Questions Should I Ask My Dad About His Childhood?](what-questions-should-i-ask-my-dad-about-his-childhood.md)
